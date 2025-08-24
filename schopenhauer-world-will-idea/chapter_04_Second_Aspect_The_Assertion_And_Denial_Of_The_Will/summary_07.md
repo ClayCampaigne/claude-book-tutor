@@ -1,0 +1,9 @@
+- After establishing the unalterable empirical character (temporal unfolding of the timeless intelligible character) and the necessity of action from motives, Schopenhauer anticipates a misuse: “since I can’t change, I should indulge.” He rebuts this as argos logos (fatalism). Following Chrysippus (via Cicero), even if “fate” determines events, it does so through causes: no effect without its proper means. Likewise, our deeds flow from character, but we do not know our character a priori; we learn it only a posteriori through experience.
+
+- One’s resolves reveal “what manner of man” one is; the later satisfaction or anguish at one’s past stems from their significance as mirrors of one’s will, which motivates present striving to shape a consoling “picture.”
+
+- Beyond intelligible and empirical character, there is acquired character: not a change of will, but clear, abstract self-knowledge of one’s fixed tendencies and the measure/direction of one’s powers. Because reason projects species-wide possibilities that can distort expression, self-ignorance leads to zigzagging, incompatible pursuits, envy, abortive efforts, and “too noble” deeds done from concepts that later provoke egoistic repentance (velle non discitur).
+
+- Acquired character requires renunciation: life’s path is a line; success in any end (pleasure, honor, wealth, science, art, virtue) demands foregoing others (Hobbesian analogy of exclusive right through renunciation). With self-knowledge come firm maxims, steadiness, fitting choice of occupations, avoidance of overreach, fewer mortifications, and rejection of dissimulation or imitation.
+
+- Viewing events sub specie necessitatis consoles: recognizing evils as inevitable products of inner and outer conditions tames revolt, without licensing vice beforehand.

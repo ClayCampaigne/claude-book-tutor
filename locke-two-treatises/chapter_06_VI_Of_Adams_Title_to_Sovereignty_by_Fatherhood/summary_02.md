@@ -1,0 +1,10 @@
+- Custom cannot ground right: even Israel practiced child sacrifice, yet Scripture condemns it as “innocent blood” and idolatry (Ps. 106), showing that fashionable or ancient practices (selling, castrating, exposing, even eating children) do not legitimate paternal power.
+- Filmer’s scriptural proof misquotes the fifth commandment by omitting “and thy mother.” Locke argues this distortion is central: throughout Scripture, father and mother are inseparably joined in filial duty.
+- Extensive citations (Exod. 20; 21; Lev. 19; 20; Deut. 21; 27; Prov.; Isa. 45; Ezek. 22; Zech. 13; Matt. 15; Eph. 6) show:
+  - Children owe honour/obedience to both parents equally; sometimes the mother is named first.
+  - In severe cases (Zech. 13:3), father and mother jointly exercise judgment, evidencing shared authority, not paternal monarchy.
+- Therefore the fifth commandment:
+  - Does not confer “monarchical” paternal sovereignty; if it did, mothers would co-rule, and every father would be a sovereign, multiplying monarchs and destroying one-supreme rule.
+  - Binds independently of civil authority; magistrates cannot discharge a child from honouring either parent, proving this duty is not political subjection.
+  - Cannot be reconciled with Filmer’s claim that the magistrate possesses all paternal authority; if alienated to the prince, natural parents would retain none, contradicting the command’s universal, inalienable duty.
+- Conclusion: “Honour thy father and thy mother” prescribes a natural, perpetual filial duty distinct from political obedience, thus cannot found absolute civil dominion by fatherhood and in fact refutes Filmer’s paternal-monarchy thesis.

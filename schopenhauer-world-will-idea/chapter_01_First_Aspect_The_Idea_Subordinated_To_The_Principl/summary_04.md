@@ -1,0 +1,16 @@
+- Reframes the “outer world” problem’s valid core: beyond being my idea, is the world akin to my own body—known doubly as idea and as will? Book II will affirm this; for now (Book I) everything, including the body, is treated solely as idea.
+- Methodological bracketing: Though we immediately know the thing-in-itself in our body, this is set aside to analyze the body as immediate object for knowledge.
+- Conditions of perception:
+  - Objective: material things can act on each other (causal efficacy).
+  - Subjective: the understanding supplies the law of causality (perception exists only through/for it), and animal sensibility makes certain bodies “immediate objects” via sensation.
+- Role of sensation and understanding:
+  - Simple sensation (immediate bodily changes) precedes understanding and supplies first data.
+  - Object proper (spatially extended idea) arises only when understanding applies causality; even one’s own body’s form is known only mediately “in the brain” (e.g., via sight/touch; a blind person learns form gradually).
+- Animal life vs plants:
+  - Animals: knowledge-guided movement by motives; hence all animals have understanding (a priori grasp of cause–effect), differing only in degree.
+  - Plants: movement by stimuli; unorganized matter moves only by causes narrowly so called.
+- Understanding vs reason:
+  - Understanding = immediate intuition of causal connections (the source of scientific discoveries, invention, prudence/sagacity in practice).
+  - Reason = abstract concepts that fix, relate, and communicate what understanding intuits; no immediate knowledge.
+- Cognitive deficits taxonomy: lack of understanding = stupidity; poor practical use of reason = foolishness; lack of judgment = silliness; impaired/absent memory = madness.
+- Distinguish understanding from instinct (to be treated in Book II).

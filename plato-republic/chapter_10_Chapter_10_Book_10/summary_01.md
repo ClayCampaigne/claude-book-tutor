@@ -1,0 +1,8 @@
+- Opening Book X, Socrates reaffirms and intensifies the earlier censorship: imitative poetry should be excluded, now seen more clearly as corrupting the understanding once the soul’s parts are distinguished; only grasping its true nature can antidote its harm.
+- Ontological/epistemic argument via Forms and imitation:
+  - Three “beds”: (1) the Form made by God (true being), (2) the carpenter’s particular bed (copy of the Form), (3) the painter’s depiction (copy of the copy). The imitator is “third from the truth.”
+  - Mirror analogy: one can “make everything” instantly as mere appearances; painting similarly captures how things seem from varying viewpoints, not how they are.
+  - Hence imitation targets appearances, not reality, and requires no knowledge of the things it portrays; it can deceive the naïve.
+- Extension to poetry: the tragic poet, led by Homer, is likewise an imitator thrice removed. Claims that great poets “know all things” are an illusion born of rhythm and harmony persuading the ignorant.
+- Practical test of knowledge: if Homer (or poets) truly knew virtue, politics, war, or education, there would be tangible results—laws, successful campaigns, inventions, schools or a transmitted way of life—like Lycurgus, Solon, Charondas, Thales, or Pythagoras. No such record exists.
+- Conclusion: poets imitate the look of virtue and crafts without knowledge; therefore, their products mislead souls and justify their exclusion from the best city.

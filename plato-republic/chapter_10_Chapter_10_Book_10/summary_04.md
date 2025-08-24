@@ -1,0 +1,12 @@
+- Completing the Glaucus analogy, Socrates says the soul’s present, body-marred state hides its true, simple, divine nature; to judge justice rightly, view the soul by its love of wisdom.
+- Having shown justice intrinsically best, he now “repays” the earlier concession about reputation: restore to justice its due appearance and rewards.
+  - The gods know who is truly just/unjust; the just are friends of the gods and, despite seeming misfortunes, “all things work together for good” for them; the unjust are opposed by gods.
+  - Among humans, the just ultimately win stable honor, rule if they wish, and prosper in old age; the unjust, though swift off the blocks, end in disgrace and punishment.
+- He then recounts the Myth of Er:
+  - Er of Pamphylia dies in battle, revives on the twelfth day, and reports the afterlife to which he was appointed messenger.
+  - Four openings (two upward, two downward) with judges: the just ascend rightward to heaven; the unjust descend leftward to the earth; souls bear tokens of deeds (front for just, back for unjust).
+  - After a thousand-year journey, souls meet in a meadow, exchanging tales: those from below sorrowful and dusty; those from above bright and joyful.
+  - Retribution principle: tenfold penalties or rewards per wrong/right over a century-unit life, totaling ten times in a thousand years; special, greater punishments for impiety and murder. Incurables (e.g., tyrant Ardiaeus) are barred from ascent by a roaring portal and dragged off by fiery wardens to torment.
+  - Cosmology of fate: after seven days in the meadow they journey to a brilliant column of light—the belt binding the cosmos—and the spindle of Necessity with eight nested whorls:
+    - Spheres identified: outer fixed stars (largest, spangled); Sun (7th, brightest); Moon (8th, lit by Sun); Saturn (2nd) and Mercury (5th) similar and yellowish; Venus (3rd) whitest; Mars (4th) reddish; Jupiter (6th) second in whiteness.
+    - Motions: the whole spindle turns one way, while the seven inner circles counter-rotate; fastest is the Moon (8th), then Sun (7th), Jupiter (6th), Mercury (5th) together; then Mars (4th); then Venus (3rd); then Saturn (2nd).

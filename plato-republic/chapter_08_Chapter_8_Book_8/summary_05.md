@@ -1,0 +1,8 @@
+- In democracy, the many “people” elevate a popular champion as “protector” against the rich; this figure is the seed of tyranny.
+- To secure power, the protector uses false accusations to prosecute, kill, or banish opponents, promising debt-cancellation and land redistribution. Once he sheds citizens’ blood, he must either perish or become a tyrant.
+- When challenged, he returns with greater force; if assassination or prosecution fail, he requests a bodyguard “for the people’s friend,” which the people grant.
+- Early in power he flatters and dispenses favors, but once foreign threats are neutralized he continually foments wars to keep the city dependent on his leadership, to impoverish citizens via taxes, and to expose and eliminate those suspected of loving freedom.
+- To rule securely, he purges the brave, wise, high-minded, and wealthy, keeping only the worst; he needs many paid satellites, importing “drones,” freeing and arming slaves, and creating “new citizens” loyal to him.
+- Tragic poets and demagogic artists aid such regimes and are honored by tyrants and democracies, though they would not thrive in the best constitution.
+- Funding his regime: first seize sacred treasuries and attainted estates; then tax the people—“the father” who begot him. If the people try to expel him, he disarms and violently subdues them—“parricide.”
+- Thus extreme democratic license flips into the harshest slavery: tyranny. Socrates closes the account of the nature of tyranny and its emergence from democracy.

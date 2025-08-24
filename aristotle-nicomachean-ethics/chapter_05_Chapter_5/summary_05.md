@@ -1,0 +1,7 @@
+- Equity (epieikeia) and justice: Equitable and just are the same in genus and both good, but the equitable is “better” insofar as it corrects the shortcomings of legal justice. Laws must speak generally and thus misfit exceptional cases; equity supplies the intended correction case-by-case—what the lawgiver would have specified if present. Hence equity is an amendment of the law where its generality fails, like a flexible “Lesbian” lead rule that adapts to irregular stones. The equitable person habitually chooses such corrections, does not press strict legal rights to others’ harm, and is willing to take less than his due; equitableness is a species of justice.
+
+- Can one act unjustly toward oneself? In the “lawful” sense, suicide is unjust, but against the city, not oneself, since no one can be wronged voluntarily; the city rightly penalizes it. In the “particular” sense (unfair taking), injustice to oneself is impossible: unjust acts require at least two parties; the wrong must precede the harm (self-harm is simultaneous); allowing self-injustice would make voluntary suffering of injustice possible; and specific injustices (adultery, theft, burglary) conceptually target others’ goods.
+
+- Doing vs suffering injustice: both bad, but doing is worse (blame, vice); suffering does not imply vice, though accidental circumstances can make its outcomes graver.
+
+- Only metaphorically can “justice” apply within one person (rational vs irrational parts). Aristotle closes the treatment of justice and moral virtues.

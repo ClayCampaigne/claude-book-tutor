@@ -1,0 +1,8 @@
+- Locke opens by condemning slavery and expressing astonishment that Englishmen defend it; he targets Sir Robert Filmer’s Patriarcha as the leading defense of absolute monarchy.
+- After careful reading, Locke deems Filmer’s arguments weak (“a rope of sand”) and insufficient to justify universal subjection.
+- He identifies Filmer’s core system: (1) all legitimate government is absolute monarchy; (2) no one is born free; therefore people cannot choose governors or forms of government, and princes rule by divine right; Adam was an absolute monarch, and all princes inherit this status.
+- Locke argues this doctrine flatters princes but denies natural freedom, thereby enabling tyranny and oppression; paradoxically, it also destabilizes princes’ titles by making all (except Adam’s heir) born slaves subject to that heir.
+- He insists neither Scripture nor reason supports unlimited subjection to another’s will.
+- He notes the novelty of “jure divino” absolute monarchy; even royalist writers (Heyward, Blackwood, Barclay) affirmed natural liberty and equality.
+- He cites Sibthorp and Manwaring as early promoters of this doctrine’s harmful effects.
+- Purpose stated: to scrutinize and dismantle Filmer’s argument, which has become fashionable among advocates of absolute power.

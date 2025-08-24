@@ -1,0 +1,9 @@
+- Completing the “best judge” argument, Socrates shows the philosopher alone has comprehensive experience of all three lives and the proper faculty (reason) to judge pleasures. He has tasted gain and honor but the money- and honor-lovers lack the experience of knowing truth; thus rational pleasure is superior, spirited next, appetitive last.
+
+- Third and decisive proof: many bodily “pleasures” are merely relief from pain—a neutral rest misperceived as pleasure or pain by contrast. Pure pleasures without antecedent pain exist (e.g., certain smells), disproving “pleasure = cessation of pain.”
+
+- Misjudgment stems from ignorance of the true “upper region” (being). Hunger/thirst are bodily lacks; ignorance/folly are psychic lacks; their fulfillments (food vs knowledge/virtue) differ in reality. What has more being/truth confers truer filling and thus truer pleasure. Soul and its objects (knowledge, true opinion, virtue) have more being than body and its objects; therefore intellectual pleasures are purer and more real.
+
+- The many live like cattle, cycling between pain and a grey neutrality, fighting over shadow-pleasures; spirited lives likewise err when unguided by reason. When reason rules, each part does its work and enjoys its own truest pleasure; when appetite or spirit rules, they miss even their own proper pleasure and chase illusions.
+
+- Thus the tyrant, furthest from law and reason, is farthest from true pleasure; the king is nearest. Socrates quantifies the gap: by successive removals (democrat between oligarch and tyrant; oligarch third from royal), the king lives 729 times more pleasantly than the tyrant, who suffers correspondingly.

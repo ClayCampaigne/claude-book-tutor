@@ -1,0 +1,9 @@
+- Definition and grounds: Prerogative is executive discretion to act for the public good without, and sometimes against, positive law when law is silent, too slow, or rigid. Its warrant is the common law of nature and the fundamental end of government: preserving the society and, as far as possible, every member. Hence discretionary acts like demolishing a house to stop a fire or pardoning where punishment would harm the whole are justified.
+
+- Scope and legitimacy: While used for the common good, prerogative is unquestioned; people tolerate wide latitude, especially in early, law‑sparse polities. Abuse for private ends prompts people to define and limit it by positive laws. Such limits are not encroachments but clarifications aligning power to its end; no ruler has a right distinct from the public good.
+
+- Political dynamics: Good princes historically enjoyed the largest prerogative; danger arises when successors cite their extraordinary, beneficial acts as precedents to harm the people. No one in society can have a right to injure the people; prerogative is “the power of doing public good without a rule.”
+
+- Example: Calling parliaments (time/place/duration) is a royal prerogative held in trust for public ends.
+
+- Who judges misuse? With no earthly judge between an executive holding prerogative and a legislature he convenes (or between legislature and people), the ultimate remedy is an “appeal to heaven.” People retain an inalienable judgment to resist power exercised without right, but this triggers only when grievances are great and felt by the majority—something wise rulers avoid.

@@ -1,0 +1,11 @@
+- Kantian frame: Distinguish empirical character (time-bound series of actions) from intelligible character (timeless, indivisible act of will). The intelligible character coincides with the Platonic Idea, i.e., the original act of will. This applies not only to individuals but to species (plants/animals) and even to each original force of inorganic nature.
+
+- Degrees of “naïveté” in manifestation: Plants reveal their whole character immediately in form (innocent blind striving, no knowledge); animals reveal it through actions; humans can dissimulate due to reason, so their will is veiled. Guilt belongs to willing with knowledge, not to willing as such.
+
+- Inner teleology (organism): Unorganized nature manifests an Idea in a single, uniform way (no inner design). Organisms manifest an Idea through many coexisting parts and developmental stages; the unity of the Idea reappears as necessary causal interrelation of parts as means and ends. This unity-through-relations belongs to appearance (space, time, causality), not to the thing-in-itself (will).
+
+- Hence Kant’s point: both design in organisms and lawfulness in inorganic nature are contributed by our understanding; they pertain to phenomena. Our wonder at “design” and at strict law is the same: the unity of the Idea showing up under multiplicity.
+
+- Outer teleology (environmental fit): Because one will objectifies in all Ideas, there is a universal, reciprocal adaptation among nature’s parts. Analogy: as outward circumstances shape only the accidental expression of an individual’s fixed character, so environments and species mutually accommodate one another in manifestation. Crucially, this agreement must be conceived outside time (Ideas are timeless): earlier phenomena (e.g., planetary motions, land/sea, atmosphere, light, warmth) are “in harmony” with later life-forms; later, higher objectifications do not derive priority from temporal order.
+
+- Instinct as model: Nature’s seeming foresight (nests, dams, provisioning, traps; plant reproductive strategies; specific anatomical adaptations) is end-like action without knowledge. Both inner and outer teleology are appearances of the one will’s self-agreement, rendered as means–end relations only within our forms of cognition (space, time, causality).

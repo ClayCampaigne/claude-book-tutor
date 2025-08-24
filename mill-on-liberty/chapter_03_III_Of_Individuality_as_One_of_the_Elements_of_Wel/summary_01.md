@@ -1,0 +1,7 @@
+- Extends liberty of opinion to liberty of action: individuals should act on their beliefs without physical or moral hindrance when consequences fall primarily on themselves. Actions that unjustifiably harm others may rightly be restrained. Even opinions lose immunity when expressed as direct incitement to mischief (e.g., inflammatory speech before a hostile mob).
+- Grounds: human fallibility, partial truths, and the value of diversity justify “experiments in living.” Individuality in self-regarding matters is essential for happiness and progress.
+- Humboldt’s doctrine: the end of man is the highest, harmonious development of powers; this requires freedom and varied situations, producing vigour, diversity, and originality.
+- Customs deserve presumptive deference as distilled experience but may be narrow, misinterpreted, inapplicable to one’s character, or stultifying if followed merely as custom. Self-chosen life-experiments exercise perception, judgment, discrimination, resolve, and self-control; mere imitation weakens faculties.
+- Desires and impulses are as integral as beliefs and restraints. Strong impulses, balanced by strong conscience, enable greater good; energy should be cultivated, not suppressed.
+- “Character” means owning one’s impulses under a strong will; society benefits from many strong characters.
+- Historical shift: once individuality exceeded social discipline; now conformity dominates. A pervasive social “censorship” leads people to follow status-based custom rather than authentic preference, stifling individuality.

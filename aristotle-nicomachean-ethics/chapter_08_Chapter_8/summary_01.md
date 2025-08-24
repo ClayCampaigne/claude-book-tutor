@@ -1,0 +1,8 @@
+- Friendship is necessary, noble, and foundational for private life and political concord; legislators prize it even more than justice, and perfect justice coincides with friendship. It supports prosperity, secures power, is refuge in misfortune, assists youth, old age, and noble action, and is natural in kin and fellow humans.
+- Love targets what is lovable: the good, the pleasant, or the useful (useful as a means to good/pleasure). People love what is (or seems) good/pleasant for themselves.
+- Friendship requires mutual well-wishing for the other’s sake with reciprocal awareness; unilateral well-wishing is not yet friendship. One cannot be friends with inanimate things.
+- Three kinds of friendship correspond to the three motives:
+  - Utility: each loves the other as useful to oneself; common among the old and in host–guest ties; intermittent contact; easily dissolved when advantage ends.
+  - Pleasure: each loves the other as pleasant; common among the young and in erotic ties; seeks living together; unstable as pleasures/change (e.g., beauty fades) unless it matures into character-based regard.
+  - Virtue (“perfect friendship”): between good people alike in excellence, each loving the other for who they are; mutually good, pleasant, and useful; most stable, resistant to slander, marked by trust and non-injury; rare and requires long, tested familiarity (“salt” proverb).
+- Friendships endure best when both receive the same thing from the same source; only the virtuous kind is primary, the others are called friendships by resemblance. Bad people can form utility/pleasure friendships, not virtue-friendships.

@@ -1,0 +1,12 @@
+- Spirit (thumos) is confirmed as a distinct third principle of the soul, neither appetite nor reason: evidence from children’s early spiritedness before reason, spirited animals, and Homer’s self-rebuke line showing reason chastening anger.
+- Thus the soul mirrors the city’s three classes: reason (rulers), spirit (auxiliaries), appetite (producers).
+- Proper order: reason, knowing the good of each part and the whole, must rule; spirit, educated by music and gymnastic, allies with reason; together they guard and restrain the insatiable appetites.
+- Virtues in the individual parallel the city:
+  - Wisdom: the small ruling part’s knowledge of what benefits all parts.
+  - Courage: spirit’s steadfast retention, through pleasures and pains, of reason’s directives about what to fear.
+  - Temperance: concord—universal agreement that reason should rule.
+  - Justice: each part doing its own work; inner noninterference and harmony.
+- Practical upshot: the just person, so ordered, won’t commit theft, sacrilege, treachery, adultery, impiety, etc., because each part does its business.
+- Justice/injustice as health/disease: just actions produce psychic order; unjust actions produce faction—usurpation of rule by a part—yielding vice (intemperance, cowardice, ignorance). Virtue = the soul’s health/beauty; vice = disease/deformity.
+- Therefore the “profitability” of injustice is absurd: a corrupted soul makes life unendurable despite external goods.
+- Transition: virtue is one; vices are many. There are five regime types and corresponding soul types; the best is the already-described aristocracy/monarchy (one or many rightly trained, same form).

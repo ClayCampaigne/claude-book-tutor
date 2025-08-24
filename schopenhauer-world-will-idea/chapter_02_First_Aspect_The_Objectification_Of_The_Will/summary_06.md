@@ -1,0 +1,9 @@
+- Reaffirming Kantian groundwork: time, space, and causality (forms of the PSR) belong to appearance (idea) only. Multiplicity, change, matter, and all that is knowable via these forms pertain to the form of representation, not to the thing-in-itself.
+- Criterion: Whatever in phenomena cannot be reduced to or explained by time, space, and causality is precisely where the thing-in-itself directly shows itself.
+- Epistemic split:
+  - Sciences a priori (mathematics, pure natural science) achieve complete clarity because they treat only form—relations among ideas—never inner content.
+  - Any empirical content introduces an inexplicable remainder (groundless), since the thing-in-itself only appears within, but is not identical with, the PSR’s forms.
+- Limits of etiology: It states when/where phenomena occur under laws, but presupposes basic forces (gravitation, elasticity, electricity, etc.) that remain qualitates occultae—the content that cannot be deduced.
+- Against reductionism: Attempts to reduce life → chemistry → mechanism → geometry → arithmetic evacuate content, yielding mere subject-dependent form (a Fichtean phantom). Historically cited: Democritus, Descartes’ vortices, Lesage, Reil, crude materialism, and Newtonian-style ether-wave optics. Some reductions succeed (e.g., magnetism from electricity), but irreducible original forces persist.
+- Analogy to will: For any effect we can cite causes for its occurrence “here and now,” but never why a thing acts at all or in that specific way—its definitive quality (substantial form) is groundless, like a human’s character. This unfathomable inner nature in even a mote (weight, impenetrability) is identical in essence with what in us is called will.
+- Methodological pivot: Philosophy, seeking unconditioned knowledge, must begin from what is immediately and most securely known (our inner access), not from external etiological constructions.

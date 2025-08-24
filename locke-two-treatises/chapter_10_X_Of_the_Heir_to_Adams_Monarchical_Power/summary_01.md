@@ -1,0 +1,9 @@
+- Filmer claims it is “undeniable” that in any multitude there is one man who by nature is king of all as Adam’s next heir; thus every person is by nature either a king or a subject, and if Adam were now dying there would be exactly one rightful heir in the world.
+- Locke shows this premise destabilizes all existing thrones: apply it to all current princes and you generate hundreds of rival “true” titles against every reigning king.
+- He frames a decisive dilemma:
+  - If Adamic heirship is the true, necessary title to sovereignty, then only one man can be a lawful king; all other rulers must resign, and no one owes obedience until that sole heir is identified.
+  - If kings can be lawful without Adamic heirship, the doctrine is irrelevant to political right and obedience.
+- Further, the heir principle collapses logically:
+  - If there is but one heir, subjects cannot know whom to obey until his title is proved.
+  - If multiple heirs are possible (coheirs), then by parity all Adam’s descendants are heirs—so all are kings and owe obedience to none.
+- Thus Filmer’s heir doctrine either voids all government or is useless to justify it.

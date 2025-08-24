@@ -1,0 +1,11 @@
+- In unequal (dissimilar) friendships, equality is preserved by proportional exchange, akin to civic exchange where money provides a common measure. In pleasure- or utility-based ties, disputes arise when partners seek different ends (pleasure vs profit) or when the sought good ceases; such friendships dissolve because they loved a contingent attribute, not the person. The “harper” case shows fairness depends on the end each sought; mismatch breeds grievance.
+
+- Valuing services:
+  - If a benefit was freely given for the other’s sake (virtue-friendship), no claim arises; reciprocation should follow the giver’s purpose, and like debts to parents, gods, or teachers, exact equivalence is impossible—“the possible” suffices.
+  - If given expecting return, ideally both agree on proportion; failing that, the recipient should assess the value (preferably by the pre-benefit estimate), since voluntary contracts hinge on trust and givers overvalue what is theirs. Prepaid promises unfulfilled are blameworthy.
+
+- Conflicting obligations admit no rigid rule; weigh nobility, necessity, and urgency. Generally repay debts/benefits before new favors, but exceptions (e.g., ransom a father first; don’t aid a known bad person). Different relations carry distinct dues: parents chiefly merit sustenance and fitting honor; elders deference; brothers/comrades share and frankness; distribute honors/aid to kin, tribesmen, citizens by closeness and merit/usefulness.
+
+- Ending friendships: utility/pleasure ties naturally end with their basis; deception about motives is blameworthy. If a friend becomes bad, withdrawal is reasonable, though reformable friends should be helped morally. Large disparities of virtue (e.g., one matures, the other remains childish) make shared life impossible; still, past friendship warrants some consideration unless extreme depravity.
+
+- Friendship’s features mirror self-relation: the good person is of one mind with himself, wills and does genuine good for his rational self, and thus provides the standard for friendship.

@@ -1,0 +1,7 @@
+- Final stance on writing and teaching: The “right man” treats written works as secondary reminders; true clarity and seriousness lie in orally teaching and engraving principles of justice, goodness, and nobility into souls. Such living knowledge is his genuine “offspring”: first, the true word discovered within himself; second, its kin implanted in others’ souls. Mere recital for belief without examination or instruction is of little value.
+
+- Message to authors and lawmakers: Tell Lysias, poets (including Homer), and lawgivers (e.g., Solon) that only if their writings rest on knowledge of truth and they can defend and surpass them in live dialectic should they be honored above “poet/orator/legislator” and called “philosophers” (lovers of wisdom; “wise” belongs to God alone). Those who cannot rise above their patched compositions remain mere speechmakers.
+
+- Isocrates: Socrates prophesies that the young Isocrates surpasses Lysias in talent and character, will outgrow rhetoric, and be led by a divine philosophical impulse to higher things.
+
+- Closing prayer and exit: Socrates prays to Pan for inward beauty, harmony of inner and outer, to count the wise as truly wealthy, and for only as much gold as a temperate man can bear. Phaedrus asks the same; they depart.

@@ -1,0 +1,7 @@
+- After banter about payment (Glaucon offers to fund Socrates; Socrates “pays in praise”), Thrasymachus defines justice: nothing but the advantage of the stronger. He explains: different regimes (tyranny, democracy, aristocracy) legislate for their own benefit; obeying these laws is called “just,” so justice = the ruling party’s interest.
+
+- Socratic challenge: rulers can err about their own interest; yet justice requires subjects to obey. Therefore, sometimes justice would require actions against the stronger’s interest—a contradiction. Cleitophon tries to rescue by saying “what the stronger thinks is to his interest,” but Thrasymachus rejects this, stipulating “ruler” in the strict sense is unerring qua ruler; thus, properly so-called rulers always command their own advantage.
+
+- Socrates refines with craft analogies: each true art (medicine, piloting, horsemanship) is faultless qua art and aims at the good of its subject, not its own profit; arts are “rulers” of their subjects. Hence a true ruler, as ruler, prescribes for the subjects’ benefit, not his own—undercutting “justice = advantage of the stronger.”
+
+- Thrasymachus retorts with the shepherd image: real shepherds fatten flocks for themselves/their masters; likewise true rulers treat subjects as sheep and pursue their own advantage day and night.

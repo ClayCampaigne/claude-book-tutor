@@ -1,0 +1,9 @@
+- Extends the “sphere” schematism of concepts to syllogistic chains: combining multiple inclusions yields long trains of syllogisms; all rules can be seen, deduced, and explained from these spatial relations.
+- Logic’s status and utility:
+  - Purely theoretical, not practically needed for correct thinking. Reason’s native procedure in each case is more immediate and reliable than applying abstract rules; in logic, unlike other sciences, rules must be justified by particular cases.
+  - Using logic “practically” is as misguided as consulting mechanics to walk; even expert logicians don’t apply rules in thinking.
+  - Nonetheless, logic deserves independent, scientific treatment as the abstract knowledge of reason’s organization and as a chapter in philosophy concerned with rational/abstract cognition.
+  - Proper exposition: derive judgment/syllogism rules from concept-sphere combinations and analyze the principle of sufficient reason of knowing alongside the three other fundamental laws of thought (metalogical truths). Logic is essentially a paraphrase of PSR of knowing.
+  - Only limited practical use: naming an opponent’s intentional fallacies in debate.
+- Historical sketch: born from Greek dialectical practice (Eleatics, Megarics, Sophists), formalized by codifying shared inferential forms; Aristotle systematized and perfected it. Medievals prized it; Kant revived interest via its role in knowing reason’s nature. Rejects claim of an earlier complete Indian logic.
+- On sophistry: its deeper mechanism is exploiting partial overlaps of concept spheres—treating a concept partly within two others as if wholly within whichever suits one’s aim, chaining such shifts (e.g., “passion” as greatest force vs irrational/weakness). Crude named fallacies are secondary. A schema (using “travelling”) illustrates guided transitions from center concept outward.

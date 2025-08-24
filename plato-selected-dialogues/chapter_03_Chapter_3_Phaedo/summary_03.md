@@ -1,0 +1,10 @@
+- Closing of the scene: As the hemlock hour arrives, Socrates declines to discuss “how to bury him,” insisting they will bury only his body. He accepts customary washing/burial but makes no literal libation of the poison (only “in spirit”). His final request—a cock to Asclepius—is framed as either an ironic settling of a minor piety or a symbol that death is a “cure.”
+
+- Jowett’s reflective theses on immortality:
+  1) Widespread belief resists scrutiny, yet has a historical development; bad arguments breed misology, so first principles must be repeatedly re-examined with rigor.
+  2) Traditional props (ecclesial authority, social utility, disputed “historical fact,” material analogies like seed/butterfly) have waned in a scientific age; immortality must be re-grounded in the nature of God and moral first principles.
+  3) Immortality is not “fame,” which is brief and selective.
+  4) Deep conceptual puzzles persist about soul–body relations (various models surveyed: Platonic separability, Aristotelian entelechy, harmony/monad, sight–eye, boatman–boat, pantheism vs personal survival); any extreme union/separation distorts human nature; Plato mixes myth and argument.
+  5) What in us is immortal—personal self, universal spirit, knowledge, goodness, sheer life, consciousness, likeness to God? Moral stakes imply some persistence of evil or educative afterlife; sympathy suggests universal hope; speculative puzzles include animals and the “origin of evil,” pressing the limits of logic.
+  6) Analogies are suggestive but inadequate; physiology dispels errors yet finds no “seed” of immortality; many rely on the consensus of the wise, linkage to God, and love’s intuition—at best approximations to a common sentiment.
+  7) “Immortality” exceeds our grasp; infinite time/space lose distinctness to thought.

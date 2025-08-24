@@ -1,0 +1,9 @@
+- Glaucon acknowledges the ascent to the first principle via dialectic is a tremendous task but follows the distinction.
+- Clarification of the Divided Line’s upper half: the “arts” like geometry proceed from unexamined hypotheses and thus employ understanding (dianoia), not the highest reason; their objects are intelligible but lack grounding in a first principle. When a first principle is added, these same objects become graspable by higher reason.
+- Dialectic alone rises above hypotheses to the first principle (the Good), contemplates being and knowledge themselves, and then reasons back down “through ideas,” without sensible aids; its objects are clearer than those of the mathematical sciences.
+- Cognitive powers mapped to the four segments:
+  - Reason (noesis) → highest intelligibles grasped by dialectic.
+  - Understanding (dianoia) → mathematical objects taken from hypotheses.
+  - Faith/conviction (pistis) → beliefs about physical things.
+  - Perception of shadows (eikasia) → imagination of images/reflections.
+- Scale of clarity: each faculty’s certainty matches the truth/clarity of its objects. Glaucon assents to this arrangement.

@@ -1,0 +1,7 @@
+- Transition and interruption: As Socrates prepares to outline the four corrupt regimes, Polemarchus, Adeimantus, Glaucon, and Thrasymachus insist he first detail the guardians’ family arrangements—especially the “community of women and children”—arguing these will decisively shape the city’s fate.
+- Socratic reluctance: He fears error on such high-stakes matters (misleading about justice is worse than involuntary homicide), but proceeds after the group “acquits” him in advance.
+- Method and starting point: Apply earlier principles about guardians as “watchdogs.” If females share the same function, they should share the same upbringing.
+- Dog analogy: For animals used for the same tasks, “breeding and feeding” must be the same; males are generally stronger, females weaker, but both can perform the same work.
+- Proposal: Women guardians must receive the same education—music, gymnastic, and military training—and perform the same civic/martial duties as men.
+- Anticipated ridicule: Naked training and women in armor/horseback will seem absurd by current norms; but norms change (as with male nudity in Crete/Sparta), and reason should judge by the good, not appearances.
+- Key principle clarified: “Each according to nature” concerns relevant differences to a task. Sex differences in begetting/bearing do not justify different education or roles. Only differences affecting the craft matter; thus guardians and their wives should have the same pursuits.

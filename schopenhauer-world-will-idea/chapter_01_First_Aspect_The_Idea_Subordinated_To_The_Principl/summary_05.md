@@ -1,0 +1,10 @@
+- Animal understanding is a priori grasp of causality, the condition of perception (e.g., a young dog anticipates falling). Distinguish it from instinct (to be treated later).
+- Cognitive norms:
+  - Truth = correct abstract judgment (reason); Error opposes truth.
+  - Reality = correct causal inference in perception (understanding); Illusion opposes reality.
+  - Illusions arise when identical effects could stem from two causes; understanding non-reflectively assumes the common cause, yielding a perceived but false object. Examples: double vision/feeling from atypical sense-organ positions, bent stick in water, mirror images, moon-horizon enlargement and mountain-distance misjudgments via misapplied atmospheric perspective. Reason can correct judgments but cannot dispel the illusory perception; understanding is non-rational and distinct from reason.
+- Methodological stance: start from “idea” (presupposing subject–object); time, space, causality belong to the object yet are knowable a priori and fall under the PSR, which applies only within the object—not to the subject–object relation.
+- Critique of “identity philosophy” (Schelling): it conflates two opposite errors—Fichtean idealism (object from subject under PSR) and “philosophy of nature” (subject from object via constructive PSR).
+- Taxonomy of object-starting systems: materialists (real world), Spinoza/Eleatics (abstract concept), Pythagoreans/I Ching (time/number), scholastics (will/creation).
+- Refutation of materialism: it presupposes the knowing subject it tries to derive (circularity); all objectivity is mediated by the brain’s forms (space, time, causality). Science, guided by PSR, relates ideas to ideas and cannot reach the world’s inmost nature.
+- Structure of sciences: each has an organon (a PSR form) and a problem (its object): geometry (space/ground of being in space), arithmetic (time), logic (ground of knowing), history (motives), natural science (matter/causality). Natural science aims to reduce all material states to one, spanning from dead matter to the human organism.

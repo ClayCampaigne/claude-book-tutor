@@ -1,0 +1,9 @@
+- True philosophers contemplate the fixed, rational order of unchanging realities and imitate it, becoming as orderly and “divine” as humanly possible. Thus, if compelled to shape human beings and cities, they would be skilled artisans of justice, temperance, and all civic virtue.
+
+- Founding method: the legislator must first “wipe the tablet clean” (create a clean civic surface), then draft the constitution by repeatedly “looking up” at absolute Justice/Beauty/Temperance and “down” at the human copy, erasing and adding until human ways best accord with the divine model—the only path to a truly happy state.
+
+- Feasibility: if even a single naturally philosophical ruler gains obedient authority, the ideal polity could be realized; difficult but not impossible. The assembly is imagined reconciled to philosopher-rule.
+
+- Selection revisited: the perfect guardian must be a philosopher. Such natures are rare because quick, intelligent, magnanimous souls often lack steadiness, while steadfast souls often lack intellectual agility. Candidates must be tested not only by pains/pleasures/dangers but also by many studies to see if they can endure “the highest knowledge.”
+
+- Turn to the highest study: beyond prior outlines of the virtues lies the “longer circuit” culminating in knowledge of the Good, without which other knowledge and possessions are useless. Popular identifications (pleasure or “knowledge” undefined) are incoherent; people accept appearances of justice/honor but demand the reality of the good. Therefore rulers must know the Good. Socrates won’t claim certainty but will state his considered view next.

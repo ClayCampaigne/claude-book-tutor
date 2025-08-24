@@ -1,0 +1,10 @@
+- Good rulers can’t help but make their people “see and feel” their care; if they truly aim at preserving laws and people, this is evident. The perilous condition of being generally suspected is thus the governors’ own, avoidable doing.
+- Signals of tyrannical design: 
+  - Pretenses vs actions diverge; legal “arts” are used to evade law.
+  - Prerogative—an discretionary power entrusted to do good—is bent against its end to harm the people.
+  - Subordinate magistrates are selected, favored, or dismissed according to their willingness to advance arbitrary aims.
+  - “Experiments” in arbitrary power recur.
+  - A religion likeliest to introduce arbitrary rule is covertly encouraged and its agents supported or at least approved, despite public denunciations.
+  - A sustained sequence of measures points in the same direction.
+- Given such a long train of consistent actions, people cannot help but conclude which way things are going and seek self-preservation; this inference is as rational as judging a captain steering persistently toward Algiers despite temporary deviations.
+- Therefore, when rulers generate this pattern, widespread resistance to illegal force becomes predictable; the fault and risk lie with those who pervert law and prerogative, not with the people who discern and react to the danger.

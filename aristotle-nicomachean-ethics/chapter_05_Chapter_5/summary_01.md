@@ -1,0 +1,9 @@
+- Justice and injustice name habits: justice disposes one to do and wish just things; injustice to do and wish unjust things. Unlike capacities, habits produce only their characteristic results.
+- The terms are multivocal: “unjust” means both lawbreaking and unfair “taking more than one’s share” (pleonexia). Accordingly, “just” means lawful and fair.
+- Lawful justice: whatever accords with law is just insofar as laws aim at the community’s happiness (as conceived by the regime), prescribing acts of virtue and forbidding vice. In this sense justice is complete virtue toward others—“another’s good”—and injustice is complete vice toward others. The same character, considered relative to others, is justice; simply considered, it is virtue.
+- Particular justice (a part of virtue) targets fairness in dealings with others about divisible external goods (honor, wealth, safety). Here injustice is grasping/unfairness, often motivated by gain. E.g., adultery for gain is unjust; adultery from lust is profligate, not “unjust” in this narrow sense.
+- Unfairness is a subset of unlawfulness: all unfair is unlawful, not all unlawful is unfair.
+- Particular justice divides into:
+  - Distributive justice: fair shares of honors/wealth among citizens.
+  - Corrective justice: redress in private transactions, subdivided into voluntary (sale, loan, deposit, hire) and involuntary, either secret (theft, poisoning, false witness, etc.) or violent (assault, seizure, murder, rape, slander, etc.).
+- The just here is the mean as equality: a proportional equality between persons and shares, involving at least two persons and two things. Disputes arise when equals get unequal shares or unequals equal shares. “Merit” sets the proportion, but regimes disagree on the standard (democracy: free birth; oligarchy: wealth; aristocracy: virtue).

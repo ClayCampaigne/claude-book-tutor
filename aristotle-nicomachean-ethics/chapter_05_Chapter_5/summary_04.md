@@ -1,0 +1,12 @@
+- Acts count as just/unjust only when voluntary: within one’s control and done knowingly (person, instrument, result), without accident or compulsion. Many natural processes (aging, dying) are neither voluntary nor involuntary.
+- Voluntary acts split into deliberate and non-deliberate. Ways of harming:
+  - In ignorance: distinguished as mistake (no vicious intent, outcome within what could be expected; agent “sets the train in motion”) vs mishap (contrary to reasonable expectation; external interference).
+  - With knowledge but without deliberation (from passion): unjust acts and “acts of injustice,” but do not mark an unjust character.
+  - With set purpose: stamp the agent as unjust/wicked.
+  - In disputes of passion (assaults), facts are agreed; quarrel is over right; in contracts, the factual question dominates.
+- Pardonability: errors “by reason of ignorance” are pardonable; acts “in ignorance” from brutal/inhuman passion are not.
+- Suffering injustice cannot be voluntary. Refine “doing injustice” to hurting another knowingly and against his wish. The incontinent does not wish his own harm; voluntary gifting (e.g., Glaucus) is not being wronged.
+- Who does injustice in distributions? The prime mover (distributor) does; the receiver only if his action is voluntary in that sense. Instruments/slaves can “do” but not “act unjustly.” Judges who knowingly misjudge grasp at gain; unwitting error is not legal injustice.
+- Being just is hard: not mere outward acts but acting in the right way, time, and toward the right persons (like medicine’s know-how).
+- Justice concerns agents for whom common goods admit excess/defect; thus it is essentially human (not for gods or the incurably vicious).
+- Transition to equity (epieikeia): the equitable is praised as “better” yet is itself a kind of just, not a different genus.

@@ -1,0 +1,9 @@
+- Two responses to beauty: the uninitiated fixate on bodily “namesakes” and pursue lawless pleasure; the newly initiated, recalling true Beauty, feel awe, trembling, heat, and “wing‑growth” pains as beauty’s effluence enters through the eyes, alternately tormenting and soothing them. This frenzy explains the lover’s single‑minded devotion and neglect of worldly norms.
+
+- God‑typed eros: Lovers model themselves on the god they once followed and seek beloveds suited to that god (Zeus → philosophical/kingly natures; Hera → royal; Apollo, etc.). They revere, educate, and reshape the beloved to that likeness without jealousy, pouring divine “inspiration” into him.
+
+- Charioteer struggle specified: The noble horse is white, honor‑loving, responsive to reason; the base horse is dark, insolent, needing force. Before the beloved, the base horse drags the soul toward unlawful acts; repeated resistance culminates in the charioteer bloodying and subduing it. Thereafter the lover follows in modesty and sacred fear.
+
+- How love becomes mutual: The beloved, moved by the lover’s faithful service, admits him to intimacy. Beauty reflects back through the “windows” of the soul, watering the beloved’s wings; he catches “love for love” (Anteros), though he mistakes it for mere friendship, and longs similarly.
+
+- Fork of outcomes: If reason and philosophy rule, the pair live orderly, master passions, and become light and “winged,” winning a heavenly victory. If they abandon philosophy, they may, in careless moments, consummate the desire; they then continue but rarely, lacking the whole soul’s approval.

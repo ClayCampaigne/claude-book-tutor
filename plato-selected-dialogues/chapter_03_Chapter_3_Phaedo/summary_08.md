@@ -1,0 +1,7 @@
+- Emotional and dramatic setup: The friends experience mixed joy and sorrow as they gather; Apollodorus is especially overwrought. Attendees include Crito and Critobulus, Hermogenes, Epigenes, Aeschines, Antisthenes, Ctesippus, Menexenus; from abroad Simmias, Cebes, Phaedondes, Euclid, Terpsion. Plato is ill; Aristippus and Cleombrotus are in Aegina.
+- Last-day procedure: They arrive early after hearing the Delian ship returned; the Eleven remove Socrates’ chains and order execution that day. Xanthippe, present with a child, is sent away lamenting. Socrates notes the linkage of pain and pleasure (chain-pain followed by relief), hinting at the “opposites” theme.
+- Poetry motive: He has been versifying Aesop and a hymn to Apollo to satisfy a recurring dream to “practice music,” hedging that philosophy is the highest “music” but obeying the dream literally before death.
+- Message to Evenus: A wise man will be willing to die but must not commit suicide.
+- Anti-suicide rationale: We are the gods’ possessions; like a servant/animal, one must await the divine summons. Cebes objects that the wise shouldn’t leave excellent rulers; Socrates replies he goes to better gods and likely better men.
+- Crito’s warning about talking is dismissed.
+- Transition to argument: Socrates will show that true philosophers “pursue death,” i.e., welcome the soul’s separation, and begins by clarifying what death is.

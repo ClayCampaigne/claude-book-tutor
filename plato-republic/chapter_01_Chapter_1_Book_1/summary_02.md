@@ -1,0 +1,7 @@
+- Pursuing Simonides’ “give each his due” via craft analogies, Socrates elicits Polemarchus’ gloss: justice is an art that benefits friends and harms enemies. Tested for peacetime usefulness, Polemarchus says justice is useful in contracts/partnerships. Socrates narrows this: in using money or goods, specialized experts (horseman, shipwright, builder, musician, soldier, vinedresser) are better partners; the “just man” seems useful only for safeguarding deposits—i.e., when money or tools are idle. This implies justice is useful when things are useless and useless when they are useful, undermining the account.
+
+- Pushing further: the best guardians are also best deceivers/thieves; thus, if the just are best at keeping money, they’d be best at stealing it—an absurd consequence ironically linked to Homer’s Autolycus. Polemarchus retreats.
+
+- Clarifying “friends/enemies”: apparent vs real. If we reward seeming friends and harm seeming enemies, we’ll aid the bad and harm the good. Correcting to “truly good friends, truly bad enemies,” Socrates asks whether the just should harm anyone. By analogies (horses, dogs, musician/horseman; heat/cold), harming degrades virtue; the just (the good) cannot produce injustice. Therefore, it is never just to harm anyone. Polemarchus agrees; the maxim is ascribed to tyrants, not sages.
+
+- Transition: Thrasymachus bursts in, condemns the method, demands a clear definition (forbidding stock answers), accuses Socratic evasion; after banter, he is pressed to state his own view.

@@ -1,0 +1,8 @@
+- Extending the misology caution, Socrates notes extremes are rare; most things lie in the mean. Unlike people, novice dialecticians, after seeing some arguments fail, can slide into global skepticism (the “Euripus” flux). One should blame one’s own lack of skill, not arguments, and strive for “health of mind.”
+- Socrates frames his stance: he argues chiefly to persuade himself; even if no afterlife exists, his composure benefits friends and any error “dies with him.” He invites strong refutation to avoid “stinging” others like a bee.
+- He secures Simmias’ and Cebes’ continued assent to recollection (preexistence), then shows Simmias’ “harmony” view contradicts it: a harmony cannot precede its elements; it is produced last and perishes first. Simmias abandons the harmony theory as merely plausible versus recollection’s firmer grounds.
+- Further dismantling harmony:
+  - A harmony only follows its parts; it cannot oppose them or possess qualities contrary to them.
+  - Harmony admits degrees; souls do not admit degrees of “soulhood.” This would erase differences of virtue/vice or make vice impossible—absurd.
+  - The soul rules and often resists bodily impulses (e.g., Odysseus reproaching his heart), which a harmony could not; thus the soul is not a harmony.
+- With “Harmonia” refuted, Socrates turns to Cebes’ remaining “Cadmus” objection: even a long-lived, preexistent soul might ultimately perish; embodiment could be a dissolving “disease.” True immortality (imperishability) still needs proof.

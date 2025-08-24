@@ -1,0 +1,11 @@
+- Mill warns that Europe’s “unorganised” regime of public opinion risks replicating China’s organised uniformity unless individuality asserts itself.
+- Europe’s past progress came not from inherent superiority but from diversity of characters, classes, and nations pursuing many paths; mutual intolerance existed, but suppression efforts rarely endured, and each eventually absorbed others’ contributions.
+- This advantage is shrinking: societies trend toward sameness. Tocqueville notes growing resemblance among Frenchmen; Mill sees it even more in England.
+- Humboldt’s two requisites for development—freedom and variety of situations—are being undermined on the second point: conditions shaping lives are becoming alike across ranks, locales, and professions (shared media, venues, aspirations, rights).
+- Drivers of assimilation:
+  - Political leveling that raises the low and lowers the high.
+  - Expanded education subjecting all to common influences.
+  - Improved communications increasing contact and mobility.
+  - Commerce/manufactures diffusing comfort and universalizing competitive ambition.
+  - Most potent: the ascendency of public opinion in free states, which levels social eminences that once shielded nonconformity, leaving no countervailing power to protect dissent.
+- Consequence: mounting hostility to individuality. Remedy and urgency: the intelligent public must affirm the value of difference—even if some differences seem worse—and act now; conformity feeds on itself, and once near-uniformity prevails, deviations appear immoral or unnatural, and people lose the very capacity to imagine diversity.

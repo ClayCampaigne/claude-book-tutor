@@ -1,0 +1,6 @@
+- Socrates restates his “safe” causal principle: things are F only by the presence/participation of the Form F (beauty makes beautiful; greatness makes great; smallness makes small). He rejects explanatory appeals to material features (colors, shapes, “a head’s length,” arithmetic operations), insisting on Form-participation as cause.
+- Methodological rule: don’t confuse principles with their consequences (as Eristics do); test whether consequences cohere and, if pressed, ascend to higher hypotheses until reaching the best principle.
+- He distinguishes two discussions: earlier, about sensibles “becoming” from opposites; now, about essential opposites that never admit one another. Agreement: an opposite never becomes its own opposite.
+- He extends “exclusion” from pure opposites to “bearers” that necessarily bring a property: snow (by bearing cold) won’t admit heat; fire (heat) won’t admit cold; the number three (odd) won’t admit even, nor two admit odd; five/ten likewise; certain ratios won’t admit “wholeness.” Such bearers either withdraw or perish rather than accept the contrary.
+- Hence, give better causal answers: body is hot by fire, diseased by fever, numbers odd by the monad.
+- Application set-up: that which renders a body alive is the soul; since life has an opposite, the stage is set to argue the soul cannot admit death.

@@ -1,0 +1,10 @@
+- Socrates completes the craft/ruler analogy: any true art (and ruling as an art) aims at the good of its subject, not the practitioner’s own advantage. This undermines “justice = the advantage of the stronger.”
+- Thrasymachus counters with scorn: justice is “another’s good” (the ruler’s benefit, the subject’s loss); rulers treat subjects like sheep for their own gain. Injustice dominates the simple and yields the doer’s happiness.
+- He argues the unjust outgain the just:
+  - In partnerships, the unjust ends with more.
+  - In taxation/benefits, the just pay more and receive less; the unjust the reverse.
+  - In office, the just neglect private affairs, refuse unlawful favors, earn hatred, and gain nothing; the unjust profit.
+  - Tyranny is the peak: wholesale plunder by fraud/force, praised as “happy,” whereas the same acts piecemeal are punished. People condemn injustice only from fear of suffering it.
+- Prevented from leaving, Thrasymachus is pressed; Socrates reasserts that, strictly, a shepherd’s art serves sheep’s good. He distinguishes the “art of pay” from other arts: remuneration is external; arts themselves benefit their subjects. Thus governments, qua ruling arts, serve the ruled.
+- Why rulers need inducement: since ruling benefits subjects, not rulers, they accept office only for money, honor, or to avoid a penalty—the penalty being governance by worse men. In a city of good men, they’d contend to avoid office.
+- Socrates sets aside “advantage of the stronger” and shifts to the core claim: is perfect injustice more profitable than perfect justice? Thrasymachus affirms and rejects calling justice virtue, injustice vice.

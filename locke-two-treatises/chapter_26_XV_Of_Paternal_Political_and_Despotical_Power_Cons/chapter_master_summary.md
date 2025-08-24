@@ -1,0 +1,19 @@
+<CONDENSED CHAPTER SUMMARY>
+Locke consolidates his earlier analyses by distinguishing three species of power—parental, political, and despotical—according to their origins, purposes, limits, and their relation to property. This mapping clarifies how legitimate authority arises only under specific conditions and to determinate ends, with property serving as a key index of status and scope.
+
+Parental (paternal) power is a natural, fiduciary authority held for the child’s benefit during minority. It exists to guide those not yet capable of governing themselves and ends with the “use of reason.” Because it is held in trust, it is non-arbitrary, excludes any right over life and death, and does not extend to an adult child’s property. What persists after maturity are moral duties of honor, respect, and support, not coercive jurisdiction.
+
+Political power arises solely by compact. Individuals, who in the state of nature possess an executive right to preserve themselves and punish transgressors under the law of nature, voluntarily transfer this power to the community and its governors in trust. The end and measure of political authority is the preservation of the members’ lives, liberties, and estates—that is, their property. Hence it is not absolute: legitimate legislatures make general laws and annex penalties only as required to secure the whole, “severing” only what is truly corrupt. Its origin is mutual consent, and its scope is bounded by the public good.
+
+Despotical power is an absolute, arbitrary dominion over life. It derives neither from nature nor from compact, since no one can alienate a power over his own life that he does not possess. It arises only by forfeiture: an aggressor who initiates a state of war makes himself liable to destruction, and in a just war a captive may fall under such dominion. Yet the instant conditions or compact are introduced, absolute slavery ceases and the state of war ends.
+
+Viewed through property, parental power applies where minority disables self-management; political power governs those with property at their own disposal; despotical power reaches only those stripped of all property. Absolute dominion is incompatible with civil society, just as slavery is with property.
+</CONDENSED CHAPTER SUMMARY>
+
+<CHUNK 1 SUMMARY>
+- Locke integrates prior distinctions by contrasting three powers—parental, political, and despotical—by their origins, ends, scope, and relation to property.
+- Parental (paternal) power: a natural, fiduciary authority for the child’s good during minority, ending at the use of reason. It is non-arbitrary, excludes life-and-death power, does not reach an adult child’s property, and leaves only lifelong duties of honor, respect, and support.
+- Political power: arises solely by compact—each person cedes the natural executive power (to preserve and punish under the law of nature) to society and its governors in trust. Its end and measure are the preservation of members’ lives, liberties, and possessions (property). It is not absolute: it legislates general laws and annexes penalties only as needed to preserve the whole (severing only truly corrupt parts). Its origin is mutual consent.
+- Despotical power: an absolute, arbitrary dominion to take life at will; it comes neither from nature nor compact (no one can grant what he lacks over his own life). It arises only by forfeiture when an aggressor enters a state of war, making him liable to destruction; captives in a just war are thus subject. The moment conditions/compact enter, absolute slavery ceases and the state of war ends.
+- Mapping by property: parental applies where minority disables managing property; political where persons have property at their own disposal; despotical over those stripped of all property. Absolute dominion is incompatible with civil society, as slavery is with property.
+</CHUNK 1 SUMMARY>

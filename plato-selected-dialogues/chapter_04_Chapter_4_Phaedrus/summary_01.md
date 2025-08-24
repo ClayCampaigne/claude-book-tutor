@@ -1,0 +1,11 @@
+- Framing and setting: Phaedrus pairs with Symposium as Plato’s full treatment of love, blending love and philosophy. Phaedrus, fresh from hearing Lysias, walks with Socrates outside the walls to read Lysias’ written speech. Socrates dismisses myth “rationalizing” (Boreas/Oreithyia), urging the study of the human soul instead.
+
+- Lysias’ thesis and Socrates’ first speech: Lysias argues the non-lover is preferable to the lover (more rational, stable, less harmful, etc.). Socrates critiques its style and content, then, ironically adopting the non-lover’s persona, delivers a better-organized case: love (an irrational excess) corrupts the beloved—isolating him, fostering luxury, jealousy, and dependence—then sours into enmity once passion fades.
+
+- Palinode triggered: As he rises to leave, Socrates’ sign checks him; he owes recompense for “blaspheming” Love. He offers a palinode: certain madnesses are divine gifts—prophecy, purificatory rites, poetic inspiration, and most of all erotic mania.
+
+- Soul myth (core doctrine): All soul is self-moving and immortal; imaged as a charioteer with two winged horses (one noble, one base). In a celestial procession with the gods, souls glimpse the intelligible realities (Justice, Temperance, Knowledge, pure Being). Vision nourishes and feathers the soul’s wings; failure to control the base horse causes descent and embodiment.
+
+- Recollection, lives, and cycles: Souls reincarnate according to how much truth they saw; highest become philosophers/lovers, then king/warrior, down through nine ranks to tyrant. Just lives improve; unjust deteriorate. After judgments and thousand-year intervals, souls choose new lives; thrice-philosophers regain wings in 3,000 years; others after 10,000.
+
+- Beauty and love: Beauty uniquely shows on earth, provoking recollection. True lovers, “mad” with divine eros, feel wing-growth pains, prize the beloved above worldly claims, and love according to the god they formerly followed—leading into the charioteer’s struggle to guide desire.

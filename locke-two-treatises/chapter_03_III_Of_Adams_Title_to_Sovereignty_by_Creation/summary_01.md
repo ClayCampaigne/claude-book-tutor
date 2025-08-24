@@ -1,0 +1,7 @@
+Locke begins refuting Filmer’s claim that natural freedom cannot be affirmed without denying Adam’s creation. Mere creation confers existence, not sovereignty; otherwise the lion, likewise created, would have equal title. Filmer retreats to “God’s appointment,” but Locke shows this is equivocal and incoherent:
+
+- If “appointment” means providence, Adam could not be de facto governor when there were no subjects.
+- If it means a positive grant (Gen. 1:28), it was not “as soon as created,” since the grant follows Eve’s creation; moreover Filmer elsewhere makes Gen. 3:16 the “original grant,” which is after the Fall—contradicting immediacy.
+- If it means law of nature, the claim becomes circular: Adam was governor by nature because he was governor by nature.
+
+Locke also exposes Filmer’s equivocation on “monarch” (proprietor of the world vs sovereign ruler). Even granting paternal right by nature, such right arises from begetting; Adam had no title “as soon as created.” Filmer’s fallback—Adam was king “in habit, not in act”—is ridiculed as empty. At most Adam had a possibility, no actual right, no necessary link between creation and government. Locke closes by criticizing Filmer’s method of ambiguities and unproved assertions masquerading as argument.

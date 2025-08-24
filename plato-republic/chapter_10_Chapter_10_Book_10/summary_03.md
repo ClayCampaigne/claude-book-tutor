@@ -1,0 +1,7 @@
+- Extending the psychological critique, Socrates says watching others’ grief, buffoonery, lust, and anger licenses the same impulses in us; theatre “feeds and waters” passions we otherwise restrain, weakening reason’s rule. Hence, against claims that Homer educates Hellas, only hymns to gods and encomia of noble men should be admitted; otherwise pleasure and pain, not law and reason, will govern.
+- He acknowledges an “ancient quarrel” between philosophy and poetry. Poetry may return only if it can defend itself as not merely delightful but truly beneficial to civic and human life; until then, citizens must guard the “city within” against its seductions.
+- Stakes are ultimate: whether one becomes good or bad, not honors or wealth. Socrates now introduces the greatest rewards of virtue by arguing the soul’s immortality:
+  - Things are destroyed by their own proper evil; if internal vice doesn’t dissolve a thing, nothing external can.
+  - The soul’s evils (injustice, intemperance, cowardice, ignorance) do not kill it; therefore external harms cannot; the soul is immortal.
+  - Immortal natures neither diminish nor increase in number.
+- To see the soul’s true nature, don’t judge it as now marred by the body (Glaucus image); contemplate its kinship with the divine through its love of wisdom. Purified, its unity and beauty would be manifest, clarifying justice and injustice.

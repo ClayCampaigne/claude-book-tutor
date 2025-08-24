@@ -1,0 +1,6 @@
+- Personified Laws assert the city is holier than parents; one must either persuade it of what is just or obey it. Punishments (imprisonment, death in war) must be borne; no “retreat” from one’s legal “rank.”
+- Athens grants freedom to leave with one’s property upon maturity; continued residence constitutes an implied contract to obey. Disobedience is “thrice wrong”: against one’s parents (the Laws), one’s educators, and one’s explicit agreement.
+- Socrates is uniquely bound: he chose lifelong residence, showed no interest in other polities, raised his children in Athens, and at sentencing refused to propose exile. To flee now would violate his long-standing assent.
+- Practical and moral fallout of escape: friends risk exile, loss of property, or civic penalties; well-governed cities would see Socrates as an enemy to law and thus confirm the judges’ verdict; in lawless Thessaly he would live shamefully as a flatterer, contradicting his teaching on justice.
+- Children argument rebutted: flight either deprives them of Athenian citizenship or leaves them to friends’ care—care they can equally provide if Socrates dies.
+- Justice must come before life; escaping would return wrong for wrong and wrong the Laws, the city, friends, and himself, incurring reproach “below.” Socrates resolves to obey this “voice” and accept his fate.

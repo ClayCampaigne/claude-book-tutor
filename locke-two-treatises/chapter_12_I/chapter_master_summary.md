@@ -1,0 +1,17 @@
+<CONDENSED CHAPTER SUMMARY>
+Having dismantled Sir Robert Filmer’s patriarchal foundation for monarchy, Locke pivots from critique to construction. He recaps the cumulative failure of Filmer’s derivation of political right from Adam: Adam never possessed universal sovereign authority; even if he had, such authority would not be heritable as a transmissible right; even if transmissible, neither natural nor divine law supplies a determinate rule to settle succession across all cases; and even if such a rule existed, the genealogy of Adam’s eldest line is irretrievably lost. Hence no contemporary ruler can plausibly claim legitimate dominion by appeal to “Adam’s private dominion and paternal jurisdiction.”
+
+Rejecting that lineage-based title avoids reducing government to mere force, which would license continual strife and instability. Locke therefore seeks an alternative origin and standard of political authority, along with a practical way to identify who is rightfully entitled to rule. His first move is to clear up confusions that let illegitimate power pass as civil authority. He insists we distinguish political power from other relations that may coexist in a single person: parental authority over children, mastery over servants, marital authority over a wife, and lordship over slaves (as well as offices like a ship’s captain). Conflating these spheres lets the household or the plantation smuggle its terms into the commonwealth and masks the specific character of civil rule.
+
+With the field clarified, Locke offers a precise definition. Political power is the right to make laws—backed by capital and lesser penalties—for the regulation and preservation of property; to employ the community’s force to execute those laws and to defend the society from foreign injury; and to do all this solely for the public good. This definition both separates civil authority from private or domestic dominations and supplies the criterion by which rulers and institutions can be assessed: they are legitimate only insofar as they exercise lawmaking and coercive power for the protection of property and the common good.
+</CONDENSED CHAPTER SUMMARY>
+
+<CHUNK 1 SUMMARY>
+- Locke transitions from refuting Filmer to founding a positive account of political authority. He recaps: Adam had no sovereign authority; even if he had, heirs had no transmissible right; even if transmissible, no natural or divine law determines rightful succession in all cases; and even if that were settled, Adam’s eldest line is irretrievably lost. Therefore no present ruler can derive any authority from “Adam’s private dominion and paternal jurisdiction.”
+
+- To avoid reducing government to mere force—inviting perpetual disorder—Locke seeks a different origin and criterion for political power and a method to identify rightful rulers.
+
+- He proposes to distinguish political power from other relations that can coexist in one person: paternal over children, masterly over servants, marital over wife, lordly over slaves—so we don’t conflate a ruler of a commonwealth with a family head or ship captain.
+
+- Definition: Political power is the right to make laws—with death and lesser penalties—for regulating and preserving property, to employ the community’s force to execute those laws and defend against foreign injury, and to do all this solely for the public good.
+</CHUNK 1 SUMMARY>

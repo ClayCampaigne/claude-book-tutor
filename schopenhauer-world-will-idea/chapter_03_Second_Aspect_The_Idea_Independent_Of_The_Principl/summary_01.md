@@ -1,0 +1,7 @@
+- Builds from Books I–II: The world as idea is the objectification of will in definite graded levels. These grades are the Platonic Ideas—the unchanging archetypal forms (of bodies and fundamental forces) expressed in countless individuals.
+- Individuals multiply, appear, and perish only under the forms of the principle of sufficient reason (PSR: space, time, causality). The Platonic Idea lies outside the PSR; it has no multiplicity or change.
+- Because our ordinary, individual cognition operates under the PSR, Ideas lie outside its scope; to know Ideas requires transcending the individuality of the knower. Explaining this exceptional access is the task of Book III.
+- Schopenhauer aligns Kant and Plato: both treat the sensible world as mere manifestation and true being as that which expresses itself in it. Kant denies time, space, causality to the thing-in-itself; Plato implicitly denies them to Ideas by denying multiplicity and becoming.
+- Reformulation: our forms make the one per kind appear as many in succession; transcendental knowledge can be obtained abstractly (Kant) and, exceptionally, intuitively (to be explained).
+- Cautions against confusing Plato’s Ideas with Kant’s a priori forms: the latter limit us to phenomena; the former are what those limits exclude.
+- Key distinction: Idea ≠ thing-in-itself; the Idea is the direct, adequate objectification of the thing-in-itself, which is will prior to objectification.

@@ -1,0 +1,7 @@
+- Locke cites English authorities—Bilson, Bracton, Fortescue, the Mirrour, and especially Hooker—to affirm that princes can forfeit power and subjects’ obedience. He rebukes those who revere Hooker ecclesiastically yet deny his political premises, calling absolutist “civil policy” a novel, ruinous flattery of tyranny.
+
+- Who judges breach of trust? The people. By the trustee analogy, the deputor retains power to dismiss a deputy who fails the trust; this holds with greater force where millions’ welfare is at stake. Where law is silent or doubtful on great matters, the proper umpire is the body of the people who first lodged the trust and can judge its extent.
+
+- If rulers refuse popular adjudication, there is no earthly judge; a state of war ensues and the “appeal to heaven” applies. Each injured party must judge when to make that appeal.
+
+- Reversion of power: The natural power each person gave to society never reverts to individuals while the society endures; it remains in the community. If the people have vested a perpetual legislature with authority to provide successors, that legislative does not revert during that government. But if the legislature is time‑limited, or authority is forfeited by miscarriages (breach of trust), the supreme power reverts to the society, which may act as supreme: continue the legislative in themselves, erect a new form, or reassign it under the old form to new hands.

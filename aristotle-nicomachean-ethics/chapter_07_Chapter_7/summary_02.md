@@ -1,0 +1,7 @@
+- Cause of akrasia via practical syllogism: action follows the particular premise. When two universals conflict—one forbidding, one asserting “all sweet is pleasant”—the perceptual minor premise “this is sweet,” joined with appetite, moves the body. Thus akrasia occurs “under” opinion only accidentally; desire, not opinion, opposes right reason. Brutes lack universals, so cannot be incontinent. Under passion the agent “has” only a degraded, perceptual/minor cognition (like a drunk reciting), which vindicates Socrates in a limited way: strict knowledge is not operative at the moment.
+
+- Scope of simple incontinence: it concerns bodily pleasures of touch and taste tied to necessity (food, drink, sex, heat/cold), the same field as temperance/profligacy. Excess about honor, wealth, victory, etc., yields only qualified “incontinence” by resemblance; likewise “softness” applies only in bodily matters. Profligates choose excess; the incontinent act against their choice.
+
+- Brutal and morbid cases: some perverse pleasures stem from bad nature, disease, or habituation; these fall outside strict vice/akrasia. We speak only metaphorically of continence/incontinence here; “human” vice/akrasia aligns with profligacy’s domain.
+
+- Anger vs appetite: incontinence in anger is less disgraceful. Anger half-heeds reason (to avenge a perceived slight) and is more natural; appetite ignores reason and is crafty. Hence appetite-based akrasia is more unjust and is akrasia “simply.”

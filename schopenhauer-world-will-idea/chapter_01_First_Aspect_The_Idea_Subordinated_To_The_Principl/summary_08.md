@@ -1,0 +1,10 @@
+- Schopenhauer posits a single function for reason (parallel to understanding’s single function of immediate causal intuition): the formation and use of abstract concepts. “Rational/irrational” simply marks the application/non-application of this function.
+- Concepts:
+  - A distinct class of ideas unique to humans; abstract, discursive, not sensuously presentable or verifiable like perceptual ideas.
+  - Their effects are empirical (language, planned action, science), but concepts themselves are only thinkable.
+  - Language is reason speaking to reason via arbitrary signs; meaning is grasped without imagery. Animals, lacking reason (concepts), cannot truly learn language despite having sense organs and perceptions.
+  - Concepts are “ideas of ideas”: reflection is a copy of perception in a different medium. They necessarily relate to perception.
+- PSR’s form here is “ground of knowing”: each concept’s entire nature is its relation to another idea as its ground of knowledge; the regress must terminate in perception. Thus reflection rests on perception (unlike other PSR forms that stay within their class).
+- Abstracta vs “concreta”: abstracta (e.g., relation, virtue) are mediated only by other concepts; “concreta” (e.g., man, stone) are immediately grounded in perception yet remain abstract.
+- Generality is intrinsic to concepts; “containing much under it” is secondary. Even a concept with one real instance (e.g., a town known only via maps) has a sphere (extension).
+- Logic as schematism of concept-relations: Euler-style circles model inclusion/overlap among concept spheres, grounding judgment (subject–predicate) and syllogistic forms; hypothetical judgments combine judgments, not concepts. Logic is theoretically illuminating but not practically necessary for sound thinking.

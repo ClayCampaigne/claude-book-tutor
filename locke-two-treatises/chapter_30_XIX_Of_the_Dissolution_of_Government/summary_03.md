@@ -1,0 +1,7 @@
+- Locke cites royalist Barclay, who concedes the people may lawfully resist a king’s “intolerable tyranny” to defend themselves, though he adds two limits: do it “with reverence” and without punishing the king. Locke rejects both: effective resistance requires counter‑force; once force without right creates a state of war, former relations of superiority dissolve, so the aggressor may be punished upon defeat.
+
+- Barclay elsewhere admits two cases where a king “unkings” himself and may be resisted: (1) designs to ruin/overturn the commonwealth (e.g., Nero, Caligula), (2) making the kingdom dependent on a foreign power. Locke generalizes: wherever lawful authority ceases, the king ceases; this tracks Locke’s principle of breach of trust—failing to preserve the agreed form and the end of government (public good, preservation of property).
+
+- Barclay also allows preemptive resistance to tyrannical designs; Locke infers neglect of the public good evidences such designs. The core wrong is loss of the people’s liberty, whether to domestic or foreign dominion.
+
+- English authorities (Bilson, Bracton, Fortescue, Mirrour, Hooker) support forfeiture of princely power for breach of trust. Locke condemns the novel doctrine that reduces all government to absolute tyranny as dangerous to rulers and people alike.

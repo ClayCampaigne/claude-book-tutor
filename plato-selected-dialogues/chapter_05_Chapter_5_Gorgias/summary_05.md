@@ -1,0 +1,9 @@
+- Socrates urges Callicles to value living “best” over mere survival; real political influence requires becoming like the people, which Socrates refuses. He proposes a test for statesmanship: has one made citizens better? By this measure, famed leaders (Pericles, Cimon, Miltiades, Themistocles) failed—Pericles’ pay policy pampered and worsened the demos, who later condemned him. They built docks and harbors but neglected virtue, like cooks fattening patients whom physicians must later cure. Flatterers will eventually be punished by the very crowd they indulged; Callicles and Alcibiades risk the same fate.
+
+- True politics is the higher, corrective “art” that forms character and does not trade for pay; rhetoric is the inferior, pleasure‑serving craft. Callicles admits he invites Socrates only to the “ministerial” path that avoids death. Socrates accepts likely condemnation, likening himself to a physician judged by children, and defines true self‑help as never doing wrong.
+
+- Eschatological myth: postmortem judges (Rhadamanthus, Aeacus, Minos) assess naked souls; punishments divide into curable (reformative) and incurable (exemplary, often kings like Archelaus). The aim is to present a pure soul; death itself is not the worst evil—arriving guilty is.
+
+- Exhortation: be rather than seem; practice virtue first, then politics.
+
+- Jowett’s critique: the dialogue shows pre‑logical ambiguities (definitions; nature vs convention; good vs pleasure), and Socrates’ refutations sometimes rest on dubious contrasts and analogies. Yet Plato’s “ideal” aims at the idea of happiness as moral rightness (like honoring martyrs), not pleasure calculus; he also affirms a duty to share discovered truth.

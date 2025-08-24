@@ -1,0 +1,11 @@
+- “To be, not to seem” is sharpened into a social-ethical critique: hypocrisy and sophistry pervade classes and professions (law, medicine, politics, theology), and unconscious hypocrisy is worst. Inherited conventions, party and pecuniary interests, and the “world” (our collective social influence) habituate most people to think by others’ opinions rather than their own.
+
+- Socrates’ remedy: cultivate the will to be rather than appear—confess ignorance, learn to do well, gain firmness and consistency, care about serious questions, and judge for oneself. Show the same principle in secret as in public; at need, even ordinary persons can oppose entire establishments for truth and right.
+
+- True vs false statesman:
+  - True: brings order from disorder; unites freedom with order; aims at an ideal polity—equal chances of health and life, highest education for all, free development of moral and intellectual powers, governed by the idea of the good. He self-masters, subordinates private enmity, plans for generations, times reforms patiently, “educates his party” toward the common good, appeals to the better public opinion, and relies on permanent political principles. He leads while winning the majority, balances doing for the people what they cannot do themselves, allows for chance, serves the whole, lives for the future, and may go unthanked.
+  - False: becomes like the populace, chases expediency and measures that merely “pass,” starts with popularity but fails in crisis and earns justified disesteem.
+
+- Democratic drift: governing for vs by the people is hard; class interests resist comprehensive views; the true governor risks ruin.
+
+- Socrates as “the only real politician”: in effect, seminal thinkers (e.g., Locke, Hume, Adam Smith, Bentham, Ricardo) are the true statesmen who seed ideas later realized; practical politicians mostly execute others’ thoughts, with rare creators (e.g., Cavour). Philosophers, though politically ill-suited, shape the future and are honored posthumously.

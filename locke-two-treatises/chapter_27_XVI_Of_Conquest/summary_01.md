@@ -1,0 +1,8 @@
+- Conquest does not found government. It destroys existing regimes but cannot erect a new legitimate one without the people’s consent; force is not consent. Promises extracted under duress do not bind.
+- Unjust conquest yields no right to obedience. The conquered (or their heirs) retain a perpetual “appeal to heaven” to recover their native right to a legislature approved by the majority.
+- Even in a just war, the conqueror gains:
+  - No power over those who fought with him; they remain free and often share the spoils. Hence “title by the sword” cannot enslave the conquering people (e.g., Norman conquest cannot make Normans or their descendants subjects by conquest).
+  - Only despotical power over the lives of those who actually assisted the unjust aggression. Subjects never authorized their rulers to make unjust war; innocents who did not concur in it forfeit nothing.
+  - No automatic title to the conquered’s estates or country. Life may be forfeit for unjust force, but property is forfeit only to the extent needed to repair damages and costs of the war.
+- Wives and children of aggressors retain rights in the estate; their subsistence has priority by the law of nature. If resources are scarce, the victor must remit part of satisfaction to preserve them.
+- War damages seldom equal the value of large territories; thus conquest cannot justify proprietorship of a country, much less absolute dominion.

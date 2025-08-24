@@ -1,0 +1,6 @@
+- Socrates defines death as the separation of soul and body, then argues the true philosopher has long “practiced dying” by withdrawing from bodily pleasures (food, sex, adornment) and focusing on the soul.
+- Senses are unreliable “witnesses”; the soul attains truth best when untroubled by sights, sounds, pains, and pleasures, using mind alone to grasp absolutes (Justice, Beauty, Goodness, Greatness, etc.). Hence the body hinders knowledge.
+- The body’s needs and lusts cause distraction, disease, and social evils (wars from money-seeking for bodily service). Pure knowledge thus comes only when the soul is free from the body—fully after death; in life we approach it by minimal bodily communion.
+- Purification = the soul’s separation from the body; philosophers alone systematically pursue this, so death should not terrify them. Fear of death reveals love of body, wealth, or power.
+- Conventional courage and temperance are mere trades of one fear/pleasure for another; only wisdom is the “true coin” that makes courage, temperance, and justice genuine. True virtue is a purgation accompanying wisdom.
+- Mystery-religion metaphor: many bear thyrsi, few are true “mystics” (i.e., philosophers). The impure cannot approach the pure; Socrates hopes, through a life of purification, to join the gods and will soon learn if he has succeeded.

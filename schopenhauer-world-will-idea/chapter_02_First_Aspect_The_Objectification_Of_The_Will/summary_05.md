@@ -1,0 +1,19 @@
+- Distinction among causal orders:
+  - Cause (strict sense): reciprocal change (action = reaction), proportionality, calculability; governs unorganized bodies (mechanics/chemistry).
+  - Stimulus: no proportional reaction; nonlinear effects (small increases can greatly amplify or nullify effects); characterizes organic/vegetative processes. It mediates between cause and motive, sometimes nearer one or the other.
+  - Motive: causality with knowledge; yet, like stimuli and causes, acts with necessity. All three determine only when/where a force manifests, not its inner nature, which is will.
+- Examples of transitions:
+  - Plant sap rise: stimulus approaching causal explanation.
+  - Hedysarum/Mimosa movements: stimuli approaching motive-like action.
+  - Pupillary contraction: stimulus shading into motive (avoid retinal pain).
+  - Erection, disgust/vomiting: ideas as motives operating with stimulus-like necessity.
+  - Instinct bridges stimulus-driven movement and motive-guided action.
+  - Breathing: “mixed,” but ultimately motive-governed (ideas can accelerate, check, or even suppress it; cases of voluntary suffocation). Motives exhibit necessity; only counter-motives can neutralize them.
+- Extension of will:
+  - Animals and plants: their actions/life processes (guided by motives or stimuli) are manifestations of the same will that constitutes our body.
+  - Inorganic nature: gravity, magnetism, electricity, crystallization, chemical affinities manifest will at its lowest, blind grade.
+  - Apparent contrast (individual human “freedom” vs law-bound nature) stems from individuality and knowledge modifying motive-effects in us, versus universal, invariant conditions in unorganized phenomena.
+- Kantian framing (§24):
+  - Space, time, causality (forms of the PSR) are subjective forms of appearance—boundary between subject and object—and not properties of the thing-in-itself.
+  - Multiplicity, change, matter belong to these forms; whatever in phenomena cannot be reduced to them directly reveals the thing-in-itself.
+  - Thus what pertains to form is most exhaustively knowable; the inner essence (later identified as will) is not.

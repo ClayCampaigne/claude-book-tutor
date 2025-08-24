@@ -1,0 +1,6 @@
+- After bathing, Socrates meets his family (two young sons and an older one) and the women, gives brief instructions in Crito’s presence, then dismisses them.
+- Near sunset, the jailer arrives, praises Socrates’ gentleness, and tearfully delivers the order to drink the hemlock. Socrates responds kindly and asks Crito to have the cup brought without delay.
+- Crito urges postponement (as others do to prolong life), but Socrates refuses, saying delay gains nothing and would be ridiculous given a life already forfeit.
+- The attendant instructs him to walk until his legs grow heavy, then lie down. Socrates asks if he may make a libation; told the dose is exact, he instead prays that the gods prosper his journey to the next world and drinks the poison calmly and cheerfully.
+- Friends break down; Socrates rebukes the outcry, insisting on a peaceful death. He walks, then lies down; the attendant checks the ascending numbness. Socrates notes the end will come when the poison reaches the heart.
+- Final words: “Crito, we owe a cock to Asclepius; see that it is paid.” Crito assents. Socrates dies; Phaedo concludes he was the wisest, justest, and best of men he knew.

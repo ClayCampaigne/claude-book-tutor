@@ -1,0 +1,9 @@
+- Completing the handbook survey: Sophistic manuals teach how to make the small seem great, the old seem new, vary length “conveniently” (Prodicus), stock up on stylistic devices (Hippias, Polus’ “treasuries,” Protagoras’ diction and pathos), and end with recapitulations. These are mere preliminaries.
+
+- Critique by analogies: Knowing drug types without knowing “to whom, when, and how much” doesn’t make a physician; likewise, knowing to make speeches long/short or “pathetic/terrible” doesn’t make a tragedian; knowing extreme notes doesn’t make a harmonist. True art is arranging parts suitably into a whole. Thus current rhetoric misses the art, mistaking instruments for composition.
+
+- Model of a true orator: Pericles exemplifies rhetoric perfected by nature plus philosophical understanding, gained from Anaxagoras’ “Mind” speculations. Great arts require high inquiry into nature.
+
+- Rhetoric as a science of the soul: Like medicine defines the body, rhetoric must define the soul to “implant” conviction/virtue. Method: determine whether the soul is simple or multiform; enumerate its forms; analyze how it acts/is acted on; classify soul-types and speech-types; match and justify which arguments persuade which souls and why. Mastery also requires experiential recognition and timing (when to speak, refrain, or use pathos, maxims, etc.).
+
+- Rebuttal from “the wolf” (sophistic view): In law and public persuasion, truth is irrelevant; only conviction matters, grounded in probability. Facts that are “improbable” should be suppressed; always speak to what seems likely to the many. Tisias defines probability as what the many think.

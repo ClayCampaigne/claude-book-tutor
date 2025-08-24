@@ -1,0 +1,7 @@
+- Genesis 9 confers explicit, collective property and dominion to Noah and his sons beyond what Adam had: “into your hands they are delivered” signals property in possession; “every moving thing… shall be meat for you” grants the ultimate use-right (destruction by consumption), which Adam lacked (he had herbs in common with beasts). Property, in respect to God, is nothing but the liberty to use; thus postdiluvian permission enlarges property, showing neither Adam nor Noah held private dominion excluding posterity.
+
+- Gen 1:28 establishes mankind’s species-wide superiority over animals, not Adam’s monarchy over men nor his sole proprietorship. The apostolic claim that God “gives us all things richly to enjoy” confirms common enjoyment, not alienation of all things to Adam and his heirs. Hence Filmer’s sovereignty-from-private-dominion collapses.
+
+- Even if Adam had sole property in the earth, property does not yield sovereignty over persons. The idea that a proprietor could starve others into obedience contradicts God’s ends (increase and multiply) and moral order: the needy have a right to the surplus of the rich; withholding relief cannot confer a right over life. Any subjection born of necessity would rest on consent under compact, not on property itself—otherwise any advantage (stores in famine, money, a boat, ability to swim) could ground sovereignty, which is absurd.
+
+- Therefore, private dominion cannot found sovereignty; and in fact Adam was given no such private dominion.

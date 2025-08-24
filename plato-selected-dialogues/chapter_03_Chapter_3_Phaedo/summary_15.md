@@ -1,0 +1,9 @@
+- Socrates restates Cebes’ “Cadmus” worry: proofs of the soul’s preexistence, strength, and long life don’t establish imperishability; embodiment might be a dissolving “disease,” so a wise person should still fear death absent a strict account of immortality. Cebes agrees.
+- To address this, Socrates recounts his intellectual turn:
+  - As a youth he pursued “natural” causes (hot/cold, blood/air/fire, brain, etc.), then realized he was confusing causes and conditions, even in simple cases (e.g., why 1+1=2; addition vs division both seeming to “cause” two).
+  - He embraced Anaxagoras’ claim that Mind (Nous) is the cause and disposer of all—expecting teleological explanations (“for the best”). But he was disappointed to find merely material accounts (air, ether, water).
+  - He illustrates the cause/condition confusion: explaining his sitting by bones and muscles ignores the true cause—his choice to obey the city’s judgment as best.
+- Lacking a satisfying account of “the best,” he adopts a “second-best” method to protect the “eye of the soul”: turn from senses to thought and use hypothesis-testing.
+  - Assume the strongest principles: there are absolutes (Beauty, Goodness, Greatness, etc.).
+  - Causal rule: things are F by participating in the Form F; participation (not colors, shapes, or mechanics) makes beautiful things beautiful. He treats this as the “safest” causal account.
+- He will use this Form-based method to resolve Cebes’ challenge and prove the soul’s immortality.

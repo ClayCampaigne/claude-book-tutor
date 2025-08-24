@@ -1,0 +1,17 @@
+- High-mindedness (megalopsychia) strictly belongs only to those with complete virtue; external goods (birth, wealth, power) can make one seem high-minded but, without virtue, breed insolence and unjust contempt. The truly high-minded judge others rightly and despise only with justice.
+- Traits of the high-minded:
+  - Shun petty risks; face great danger for great ends, treating life as not worth clinging to at all costs.
+  - Prefer conferring benefits, are ashamed to receive them, and repay with greater benefactions to restore superiority; remember what they give more than what they receive; dislike being reminded of received favors.
+  - Rarely ask favors; are lofty toward the great and affable to the middling; avoid haughty treatment of the lowly.
+  - Pursue few but great and notable deeds; seek honor only for truly great works.
+  - Frank, truthful (with ironic reserve toward the masses), open in love and hate; won’t shape life to please others except friends; disdain flattery.
+  - Hard to impress; quickly forgive and forget injuries; avoid gossip and gratuitous praise/blame; don’t lament minor or inevitable misfortunes.
+  - Prefer beautiful, non-useful possessions; external demeanor: slow gait, deep voice, measured speech—reflecting that little seems very important.
+- Opposed vices: little-mindedness (deficient, commoner, worse—self-undercutting misjudgment that shrinks from noble deeds) and vanity (excess—self-ignorant ostentation and overreaching).
+- Lesser virtue about honor (ambition): a nameless mean between “ambitious” and “unambitious,” terms used variably in praise or blame. The mean desires honor rightly (source, manner, amount); extremes appear opposed because the mean lacks a fixed name.
+- Gentleness (praotēs): mean regarding anger. The gentle person gets angry at the right things, people, times, and duration, erring slightly toward leniency. Deficiency (wrathlessness) is slavish insensibility; excess takes forms:
+  - Wrathful: quick to anger and quick to cool (venting brings relief).
+  - Choleric: angered at anything, too readily.
+  - Sulky: bottle anger, slow to appease, burdensome to self and friends.
+  - Hard-tempered: offended wrongly, excessively, enduringly; implacable without vengeance—more opposed to gentleness and worse to live with.
+  - Precise measures are context-dependent; small deviations may be tolerated. The mean habit is to be aimed at; excess and defect are censured by degree.

@@ -1,0 +1,8 @@
+- Mill asks where individual sovereignty ends and social authority begins: allocate spheres by whose interests are chiefly implicated.
+- Because we benefit from society, we owe: (1) non-injury to others’ rights-based interests; (2) a fair, equitable share of efforts/sacrifices to defend society. These may be enforced by law; opinion may also censure inconsiderate but non-rights-violating acts.
+- Society’s jurisdiction starts when conduct prejudicially affects others’ interests; it has no standing where conduct concerns only competent adults themselves. In such self-regarding matters there should be complete legal and social freedom to act and bear the consequences.
+- After maturity, self-regarding virtues must be promoted by education, persuasion, and exhortation—not coercion. Each person is the best judge of their own good; social interference rests on fallible general presumptions.
+- Legitimate social responses to self-regarding faults are natural, non-punitive consequences (loss of esteem, avoidance, cautioning others, preferring others in optional favors), not organized punishment; assistance aimed at improvement remains appropriate.
+- Self-regarding faults show folly, not wickedness, unless they breach duties to others. Other-regarding wrongs—and the dispositions that produce them (cruelty, envy, pleonexia, etc.)—merit moral reprobation and, in grave cases, punishment.
+- This distinction guides reactions: pity or nonassociation for self-harm; punitive measures when others are harmed.
+- Mill anticipates objections: self-injury harms dependents and public resources, sets bad examples, and some adults are unfit like children—hence calls to suppress vices by law and organized opinion—setting up the debate to follow.

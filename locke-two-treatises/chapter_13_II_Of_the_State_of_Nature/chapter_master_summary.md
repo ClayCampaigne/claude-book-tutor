@@ -1,0 +1,26 @@
+<CONDENSED CHAPTER SUMMARY>
+Locke begins his account of political power by first defining its opposite: the state of nature. This is a condition of perfect freedom and equality, in which each person may order his actions and dispose of his person and possessions within the bounds of the law of nature, without needing permission from others. Equality holds by default unless God has clearly appointed a superior, and, following Hooker, this equality grounds duties of mutual love, justice, and charity. The state of nature is liberty, not license. Reason is the law of nature: as all are God’s workmanship and servants, no one may harm another in life, health, liberty, or possessions; each must preserve himself and, where consistent with that duty, preserve others.
+
+For this law not to be vain, its execution lies in everyone’s hands. Any person may punish offenders to the extent necessary to restrain them and repair the injury, but not arbitrarily or beyond proportional limits. Murderers may justly be killed, having by their act declared war on mankind; this same natural right explains how magistrates can punish aliens, not by civil but by natural jurisdiction. Locke distinguishes two rights here: a public right of punishment belonging to all, and a private right of reparation belonging only to the injured. Magistrates may remit the former for the public good but cannot remit the latter.
+
+To the objection that this makes each a judge in his own case, Locke replies that civil government is instituted to remedy such inconveniences. Absolute monarchy, however, is worse: it places one man as judge in his own cause without appeal, so the state of nature is preferable to such absolutism. The state of nature persists wherever there is no common authority: rulers of independent communities stand thus toward one another, and only a mutual compact to unite into one body politic ends it; leagues and alliances do not. Promises outside civil society bind by natural law—truth-keeping obliges us as men—and human insufficiency in solitude naturally inclines people to union. Locke’s strong thesis is that all are naturally in the state of nature until, by their own consent, they become members of a political society, a claim he promises to demonstrate further.
+</CONDENSED CHAPTER SUMMARY>
+
+<CHUNK 1 SUMMARY>
+- Locke begins deriving political power from its origin by defining the state of nature: a condition of perfect freedom and equality to order one’s actions and dispose of one’s person and possessions within the bounds of the law of nature, without leave of any other. Equality holds unless God clearly designates a superior.
+- With Hooker, Locke grounds duties of mutual love, justice, and charity in this natural equality.
+- The state of nature is liberty, not license. Reason is the law of nature: because all are God’s workmanship and servants, no one may harm another’s life, health, liberty, or possessions. Each must preserve himself and, where consistent, preserve others.
+- For that law not to be vain, execution is in every person’s hands: everyone may punish violators to the extent needed for restraint and reparation, not arbitrarily. Murderers may be killed as having declared war on mankind; this also explains how magistrates can punish aliens (by natural, not civil, right).
+- Distinguishes two rights: public punishment (in all) and private reparation (in the injured only); magistrates may remit the former for public good but cannot remit the latter.
+- Replies to the “judge in one’s own case” objection: civil government remedies these inconveniences, but absolute monarchy is worse (one man judging his own case without appeal). The state of nature is preferable to such absolutism.
+- On existence: rulers of independent communities are in a state of nature relative to one another; only a mutual agreement to unite into one body politic ends it. Other compacts (alliances, leagues) do not.
+</CHUNK 1 SUMMARY>
+
+<CHUNK 2 SUMMARY>
+- Locke sharpens the absolutism critique: under absolute monarchy subjects must submit to whatever the monarch does—whether guided by reason, error, or passion—whereas in the state of nature no one is bound to another’s unjust will, and anyone who judges amiss is answerable to the rest of mankind.
+- He answers the “where is the state of nature?” objection: rulers of independent states are in a state of nature relative to one another; thus the world always contains many in that condition.
+- Not every agreement ends the state of nature: only a mutual compact to unite into one community and form a single body politic does. Leagues and alliances leave parties still in the state of nature.
+- Promises made outside civil society are binding by natural law. Examples (e.g., Garcilaso’s desert-island traders; a Swiss and an American Indian) show truth-keeping obliges “as men,” not only as citizens.
+- Citing Hooker, Locke affirms the law of nature binds even absent settled society; human insufficiency in solitude naturally induces political union.
+- Strong thesis: all are naturally in the state of nature until, by their own consent, they become members of some political society—a point he pledges to prove further.
+</CHUNK 2 SUMMARY>

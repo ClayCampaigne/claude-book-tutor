@@ -1,0 +1,10 @@
+- Socrates sharpens the “who is a philosopher?” question: not mere curiosity or love of performances, but a lover of the whole of wisdom—specifically, a lover of the vision of truth.
+- He introduces the Forms: Beauty itself, Justice itself, Good itself, etc., each one in itself, versus the many sensibles that “appear many” through mixtures with actions and things.
+- Sensible particulars are ambiguous—beautiful in one respect, ugly in another; double here, half there; great and small, heavy and light—so they both are and are not F. Hence they are unstable “riddles” and cannot be fixed as simply being or not-being.
+- Epistemic framework:
+  - Faculties are distinguished by their power and object.
+  - Knowledge (episteme) correlates with being and is infallible.
+  - Ignorance correlates with not-being.
+  - Opinion (doxa) is an intermediate faculty whose object is what lies between being and not-being—the fluctuating realm of sensibles.
+- Ontological-epistemic alignment: those who only perceive many beautiful things but cannot grasp Beauty itself “dream,” mistaking copies for the real; those who can distinguish the Form from its participants are “awake” and know.
+- Conclusion: lovers of sights and sounds are “lovers of opinion,” not philosophers. True philosophers apprehend the absolute, eternal, unchanging realities and so are genuine lovers of wisdom—prefiguring why they alone are fit to rule.

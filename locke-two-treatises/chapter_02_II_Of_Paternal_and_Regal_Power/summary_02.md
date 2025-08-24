@@ -1,0 +1,8 @@
+- Locke reiterates that Filmer offers no real scriptural or rational proof for Adam’s absolute sovereignty beyond repeating “Honour thy father” and invoking Bellarmine; he challenges admirers to cite any actual argument.
+- He suggests the applause for Filmer stems from interest in absolute power, not reason, and warns that rational readers will not be persuaded by bare assertion.
+- To be thorough, Locke surveys Filmer’s other works. In the Observations on Hobbes, he finds the fullest statement of Filmer’s case, condensed into a chain of “ifs”:
+  - God created only Adam and made Eve from him.
+  - All mankind are propagated from them as “parts” of the first pair.
+  - God gave Adam dominion over Eve and over their children.
+  - God also gave Adam dominion over the whole earth and all creatures, so that while Adam lived no one could claim or enjoy anything except by his grant or permission.
+- Locke identifies these as the entire basis for Filmer’s denial of natural freedom and for Adamic sovereignty: creation, conjugal dominion, and paternal dominion (with universal property/permission). He announces he will examine each claim in turn.

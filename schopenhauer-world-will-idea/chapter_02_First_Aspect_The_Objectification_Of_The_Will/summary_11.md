@@ -1,0 +1,12 @@
+- Organisms manifest a higher Idea (grade of will) that has conquered lower Ideas (physical/chemical forces) via assimilative subjugation; therefore they cannot be explained from those forces alone. The single will seeks its highest possible objectification, relinquishing lower grades after conflict to appear more powerfully in higher ones.
+- Conquest is ongoing: subdued forces persistently resist. Hence:
+  - Effort against gravity (e.g., holding an arm out) soon yields to it.
+  - Health is precarious, always shadowed by discomfort from vegetative resistance; digestion temporarily debilitates higher functions.
+  - The burden of life entails sleep and culminates in death, when lower forces, aided by circumstances, reclaim matter from the organism.
+  - An organism’s expression of its species-Idea is only what remains after subtracting energy spent subduing lower forces; greater subjugation approaches the ideal (beauty).
+- Nature is universal strife: each grade of will fights for matter, space, time; phenomena incessantly displace one another to express their Idea. This self-conflict of will appears:
+  - Biotically (predation, parasitism, intra-organismal assimilation, plant strangulation).
+  - Inorganically (crystal interference, magnetism imposing on iron, galvanism overriding chemistry).
+  - Cosmically (planet–sun tension; motion as primordial; nebular hypothesis; systemic drifts), exhibiting aimless striving across boundless space/time—universal forms of will’s appearance.
+- At the lowest grade, matter is the strife of attraction and repulsion (gravity vs impenetrability), a blind, law-governed impulse without individuality.
+- Ascending grades shift from stimulus-driven activity (plants, vegetative animal functions) to motive-guided action requiring consciousness; the brain (or ganglion) is the organ of this “machine.” With it, the world as idea—subject/object, time, space, causality—arises, newly interfacing with and modifying will’s previously blind, regular workings.

@@ -1,0 +1,7 @@
+- Socrates confirms kingship/aristocracy and tyranny are opposite extremes in virtue; to judge happiness, a qualified observer must look past the tyrant’s pomp to his private life and crises. Using the city–soul parallel, a tyrant city is utterly enslaved, poor, fearful, lamenting; likewise the tyrannical soul is slavish, its best parts ruled by the worst, least able to do what it truly wants, insatiable and terrified.
+
+- Socrates intensifies the verdict: most miserable is the person of tyrannical nature who actually becomes a public tyrant. Analogy: a rich master removed from civic protection into a wilderness must flatter and fear his own slaves; worse still if surrounded by hostile egalitarians. So the tyrant lives like a prisoner, confined, jealous of travelers, compelled to rule others though unruled within, servile to the vilest, ever poorer in soul, more suspicious, faithless, unjust, friendless, impious; power aggravates his vices and spreads misery.
+
+- Glaucon pronounces the ranking by happiness/virtue: royal/aristocratic best, then timocratic, oligarchic, democratic, tyrannical worst.
+
+- Second proof appeals to the tripartite soul and its pleasures: rational (truth-loving), spirited (honor-loving), appetitive (gain-loving). The right criterion is experience, wisdom, and reason. The philosopher uniquely knows the pleasure of true being and, having also sampled honor and gain, is the best judge; the money- and honor-lovers lack experience of philosophical pleasure.

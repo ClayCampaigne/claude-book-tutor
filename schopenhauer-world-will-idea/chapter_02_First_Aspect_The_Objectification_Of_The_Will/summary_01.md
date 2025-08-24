@@ -1,0 +1,11 @@
+- Shift from Book I’s form of representation to the content and “peculiar significance” of perceptual ideas: why they speak to us rather than remain meaningless images.
+- Survey of possible sources:
+  - Philosophy largely posits a substrate “object” behind ideas, but since objectivity presupposes a subject, this collapses back into representation; PSR only links ideas to ideas, not to anything beyond representation.
+  - Mathematics treats only quantity (how-many/how-much) in space and time; it yields relations, not inner meaning.
+  - Natural science divides into:
+    - Morphology: description and classification of stable forms (botany, zoology, mineralogy), revealing analogies (unité de plan) but not origins or inner essence; generation remains mysterious.
+    - Etiology: causal explanation of changes (mechanics, physics, chemistry, physiology). It presupposes fundamental forces and properties (e.g., matter, weight, inertia), and states lawful spatiotemporal sequences, but never the inner nature of forces. Causality itself is a form of representation, known a priori, valid only for objects.
+- Conclusion: Investigating “from without” reaches only images, names, and laws; the thing’s inner nature remains inaccessible via PSR.
+- Turn “from within”: the knower is embodied. The body is given doubly:
+  - As idea among ideas (perception, subject to causal laws).
+  - Immediately as will. Every genuine act of will is identical with a bodily movement (not cause and effect but one and the same event given in two modes). This immediate access provides the key to the world’s inner essence.

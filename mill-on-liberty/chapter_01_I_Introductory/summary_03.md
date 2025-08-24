@@ -1,0 +1,7 @@
+- Extends the harm principle to two concrete liberties beyond thought:  
+  - Liberty of tastes and pursuits—each may shape life to suit their character and bear the consequences, without interference so long as no harm to others occurs, even if others deem the conduct foolish or wrong.  
+  - Liberty of association—free combination for any non-harmful purpose by consenting, undeceived adults of full age.
+- A society lacking these is not free; complete freedom requires these liberties be absolute and unqualified. True freedom is pursuing one’s own good without depriving or impeding others; individuals are proper guardians of their own bodily, mental, and spiritual health. Humanity gains more by tolerating self-direction than enforcing conformity.
+- Despite seeming obvious, prevailing opinion/practice resists this. Ancient small republics plausibly regulated private conduct for survival; but in modern large states, while church–state separation reduced legal intrusion, moral repression by opinion intensified—often stronger in self-regarding matters—driven by hierarchical religion, Puritanism, and even secular systems (e.g., Comte’s positivism) seeking social despotism.
+- Societal power and propensity to impose norms are growing; without a strong moral barrier, encroachment will increase.
+- Mill will first argue for Liberty of Thought (inseparable from speech/press), whose underappreciated grounds generalize to the whole doctrine.

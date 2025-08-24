@@ -1,0 +1,7 @@
+- Locke argues it is incredible that if “fatherly authority” were a divinely ordained, foundational principle of all government, God would omit and conceal it among Israel for centuries while prescribing their polity. Judges shows collective deliberation, not monarchy; thus either God did not “preserve” fatherhood, or fatherhood does not entail monarchy.
+
+- He challenges Filmer’s axiom that whenever God chooses a king He intends the king’s “issue” to inherit. Neither natural law nor revelation says this, and unless God also specifies which issue, succession devolves into division or scrambling—defeating the supposed benefit. Scripture’s pattern contradicts Filmer: when inheritance is intended, God names the “seed” (Abraham, Aaron, David), while Saul’s kingship, given without mention of his seed, did not pass to his issue.
+
+- Parity objection: if God’s grant of “fatherly authority” to a king ipso facto entails hereditary descent, the same should hold for judges, since both offices are by God’s choice; Filmer offers no reason to differentiate.
+
+- Surveying Israel’s history: from entry into Egypt to the Exodus (~200+ years), no paternal government; from Exodus to kings (~400 years), none; hereditary monarchy runs only from Saul/David to the captivity (~500 years), after which to Rome’s destruction (~650 years) hereditary, lineal “paternal” right is absent. Thus, across ~1,750 years, hereditary kingship appears less than a third, with no trace of Adamic/paternal succession even then.

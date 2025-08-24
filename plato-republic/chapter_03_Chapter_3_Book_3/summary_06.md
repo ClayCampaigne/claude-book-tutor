@@ -1,0 +1,9 @@
+- Selection of rulers: From youth onward, candidates are watched to see if they steadfastly keep the conviction that the city’s good rules their lives. Loss of true conviction is “involuntary” and occurs by:
+  - Theft: persuasion or forgetting (argument “steals,” time erases).
+  - Force: pain or grief compels change.
+  - Enchantment: deceptive sway of pleasure or fear.
+- Testing regimen: Put youths through tasks, hardships, pains, fears, and pleasures—“prove them more than gold in a furnace.” Those who remember and are not deceived at every age become rulers; failures are rejected. Successful candidates receive highest honors in life and death.
+- Terminology clarified: The highest class are “guardians” (rulers preserving internal peace and external defense); the younger fighters are “auxiliaries.”
+- Noble lie (foundational civic myth): Citizens are earthborn siblings; God mixed different “metals” in souls—gold (rulers), silver (auxiliaries), bronze/iron (farmers/craftsmen). Birth usually preserves type, but cross-type children occur; rulers must reassign ranks accordingly. If a bronze/iron nature rules, the city is ruined. Though current adults won’t believe it, later generations may; the belief fosters civic loyalty.
+- Institutional arrangements to prevent guardian corruption: establish defensible encampments; provide soldierly housing; cultivate education plus simple living.
+- Economic rules: no private property beyond necessity; common messes; fixed, modest pay; absolute ban on owning/handling gold or silver (their “divine metal” is within). If they acquire property/wealth/land, they become domestic tyrants and the city faces internal ruin.

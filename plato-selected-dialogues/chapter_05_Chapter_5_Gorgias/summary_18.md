@@ -1,0 +1,7 @@
+- Callicles articulates a “nature vs convention” thesis: by nature, suffering injustice is worse (a greater evil) and “justice” is the stronger/better taking more and ruling the weaker; “laws” are inventions of the weak majority to shackle the naturally superior and brand pleonexia (having more) as unjust. He appeals to examples (Xerxes’ conquests, Heracles in Pindar) to legitimate might-as-right.
+
+- He attacks philosophy beyond youth: in adults it breeds ignorance of civic practice, human desires, and courtroom speech, rendering one helpless if accused; he urges Socrates to abandon refutation, learn practical rhetoric/politics, and pursue reputation and wealth.
+
+- Socrates welcomes Callicles as a “touchstone” (knowledge, goodwill, frankness), recalling Callicles’ own prior counsel not to overdo philosophy, and asks guidance on the best life.
+
+- Pinning down “natural justice,” Socrates gets Callicles to equate superior, better, and stronger. Socrates then argues: if superior=stronger, the many are superior to the one; therefore their laws are by nature the laws of the superior/better and thus “by nature good.” But the many hold that justice is equality and that doing injustice is more disgraceful than suffering it. Hence, on Callicles’ own premises, nature and convention align here, undercutting his claimed opposition. Callicles dismisses this as nonsense.

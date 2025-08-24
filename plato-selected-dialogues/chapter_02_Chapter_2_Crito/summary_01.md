@@ -1,0 +1,7 @@
+- Framing and aim: Crito presents Socrates not as divine-mission philosopher but as model citizen who obeys the laws even under an unjust sentence. Plato’s purpose is to show steadfast adherence to the principle “never do wrong or return wrong,” guided by reason and the judgment of the one wise person, not the many. The dialogue is a tight dialectic culminating in a personified “Laws” speech: by lifelong residence Socrates tacitly consented to Athens’ laws; breaking them now would dishonor him, harm friends, and affront both the city’s Laws and those “below.” Plato defends Socrates’ citizenship against charges tied to his followers and political neutrality; historicity of the escape proposal is uncertain. The “wicked can neither do good nor harm” means they cannot touch one’s virtue.
+
+- Dramatic setup: With the Delian ship sighted off Sunium, Crito visits at dawn; Socrates, calm, predicts a one-day delay based on a dream (“third day to Phthia”).
+
+- Crito’s case for escape: practical ease and funding (Crito, Simmias, Cebes), manageable risk of informers, welcome and safety in Thessaly, avoidance of friends’ disgrace, thwarting enemies, and duty to raise his children.
+
+- Socrates’ stance: discount the many’s opinion—they cannot make one wise or foolish—and focus solely on whether escape is just.

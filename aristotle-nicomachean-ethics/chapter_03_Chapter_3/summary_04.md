@@ -1,0 +1,11 @@
+- Completes “look-alikes” of courage and clarifies true courage:
+  - Experienced professionals seem brave but flee when outmatched; citizen-soldiers stand from shame/honor—true courage values noble action over life.
+  - Rage-driven boldness resembles courage but is passion-led (like beasts or lustful adulterers); only when governed by reason for the sake of the noble does spiritedness aid real courage.
+  - Sanguine/optimistic confidence (often from past victories or drunkenness) collapses when expectations fail; true courage faces known terrors because it is noble.
+  - Unaware fighters appear brave but run when they discover the real danger.
+- Courage chiefly concerns fear (enduring pains) rather than confidence. Its end is pleasant (noble honor) but obscured by present pains (death, wounds), like athletes enduring blows for a crown. The better and happier a person, the more painful death is—thus their courage is greater for choosing the noble despite greater loss. Reckless men may fight more “efficiently,” but are not more courageous.
+- Transition to temperance: the other virtue of the nonrational part.
+  - Temperance concerns bodily pleasures, especially of touch in eating, drinking, and sex (taste only as discrimination); not pleasures of sight, hearing, smells per se, nor intellectual/social pleasures.
+  - Profligacy is most censured as animal-like, fixing love on such pleasures; excludes “manly” bodily comforts (e.g., baths) taken over the whole body.
+  - Desires: natural/common (basic hunger, thirst, sex) vs individual/acquired (particular objects/modes). Excess in the latter defines profligacy: delighting in wrong things, too intensely, or in the wrong way/time; marked by pain at deprivation (since appetite involves pain).
+  - Insensibility (deficiency) is rare/nonhuman. The temperate person: disdains base pleasures, is not pained by their absence, desires moderately what is healthy, not injurious, not ignoble, and within means, guided by right reason.

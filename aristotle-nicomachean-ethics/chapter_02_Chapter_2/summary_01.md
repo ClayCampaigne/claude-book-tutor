@@ -1,0 +1,10 @@
+- Transition from Book I: Since happiness is activity in accord with virtue, Aristotle now explains how moral virtue arises and what it is.
+- Two kinds of excellence: intellectual virtue grows by teaching and time; moral virtue (êthikê) arises from habit (ethos). We are not born virtuous or vicious; nature gives the capacity, habit actualizes it.
+- We acquire virtues by doing the corresponding acts (as with arts): just acts make us just; temperate/courageous acts make us temperate/courageous. Legislators aim to habituate citizens; constitutions are judged by success in this.
+- The same kinds of actions produce, manifest, preserve, and destroy virtues and vices: doing them well forms virtue; doing them badly forms vice. Early training matters decisively.
+- Practical method: actions must accord with right reason (to be specified later). Ethical reasoning is in outline; particulars require judgment, like medicine/navigation.
+- Virtue is a mean relative to us between excess and deficiency (e.g., courage between cowardice and rashness; temperance between insensibility and profligacy). Moderation preserves, extremes ruin.
+- Pleasure and pain are the test and target of moral formation: the virtuous take right pleasures and pains in the right things, times, and ways. Education must tune our pleasures/pains; correction uses them. Error is especially about pleasure.
+- Virtue and politics centrally concern managing pleasures/pains; resisting pleasure is hardest and most praiseworthy.
+- Doing just/temperate acts is not yet being just/temperate: the agent must know, choose the act for its own sake, and act from a firm character—conditions built by repetition.
+- Classification: states of soul are passions, faculties, or habits (hexeis). Virtue is a stable habit/disposition, not a passion or mere capacity, and involves deliberate choice and proper regulation of affections.

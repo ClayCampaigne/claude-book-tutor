@@ -1,0 +1,9 @@
+- Definition and scope: Tyranny differs from usurpation. Usurpation is exercising another’s right; tyranny is exercising power beyond right—using public power for private ends, substituting will for law, and aiming at ambition, revenge, or covetousness rather than preserving subjects’ properties. It can occur in any regime (one or many): Athens’ Thirty, Rome’s decemvirs.
+- King James I as authority: A rightful king is bound by fundamental laws (tacitly by kingship, expressly by coronation oath) and governs for the public good; departing from rule by law degenerates a king into a tyrant. Good kings bound themselves within legal limits; counselors urging the contrary are pests.
+- Where law ends, tyranny begins: Any official who exceeds legal power and uses force against what the law allows ceases, in that act, to be a magistrate and may be resisted like any private invader. Commissions cannot authorize what the law forbids; authority comes from law, not the warrant’s words.
+- Wealth/power aggravate, not excuse, oppression.
+- Resistance conditions (to avoid anarchy):
+  1) In polities where the prince’s person is sacred, his person remains inviolable; illegal acts by subordinates may be opposed unless he himself makes war on the people.
+  2) Subordinates using unjust force under color of royal commission may be resisted; the king cannot authorize illegality.
+  3) Force is lawful only when appeal to law is blocked (state of war). Deadly defense is justified against life‑threatening force, not against remediable wrongs.
+  4) Private, isolated wrongs rarely disturb government. But widespread or precedent‑setting illegalities that threaten laws, estates, liberties, lives, or religion will move people to resist—especially when a sustained pattern (abuse of prerogative, partisan ministers, experiments in arbitrary power, covertly favored religion) reveals designs toward arbitrary rule.

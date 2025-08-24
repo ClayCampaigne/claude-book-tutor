@@ -1,0 +1,9 @@
+- Exchange requires a common measure. The real bond is mutual need; money (nomisma, from nomos) is a conventional proxy for need/demand that makes unlike goods and labors commensurable and enables proportional reciprocity. Prices should be adjusted before exchange so the ratio of products matches the ratio of producers’ worth, avoiding a “double advantage.” Money also serves as a more stable, future-guaranteeing medium; though its value varies, it lets all things be assessed and exchanged, making society possible. Exact commensurability is impossible, but need provides a practically sufficient standard (illustrated by numerical equivalences).
+
+- Justice is a mean between doing and suffering injustice (having too much vs too little). As a habit, it deliberately apportions proportionate shares of goods and burdens for oneself and between others; injustice chooses disproportion in both directions. Doing injustice is worse than suffering it.
+
+- One may do unjust acts without being unjust (e.g., acts from passion vs settled choice). Civic justice concerns free, equal citizens under law; outside this (master–slave, parent–child) “justice” is only analogous, and one cannot be unjust to oneself. Magistrates should secure equality and are compensated by honor; grasping beyond this tends toward tyranny.
+
+- Civic justice is partly natural (universally valid though changeable) and partly conventional (initially indifferent determinations). Distinguish unjust/just things from acts; δικαιοπράγμα (just doing) vs δικαίωμα (rectification).
+
+- Acts count as unjust/just only if voluntary: within control and done with knowledge of particulars; compulsion or ignorance renders them involuntary. Some processes (aging, dying) are neither.

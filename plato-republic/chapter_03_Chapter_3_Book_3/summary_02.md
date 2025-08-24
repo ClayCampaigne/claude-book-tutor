@@ -1,0 +1,7 @@
+- Complete the theological-ethical censorship: poets must not attribute impious crimes to gods, demigods, or heroes. If such deeds are told, poets must either deny the deeds or deny the divine parentage—never both. Rationale: teaching that “kin of gods” do evil makes youths excuse their own vices and implies gods cause evil, which has been rejected.
+
+- Turn to speaking about men: they would forbid claims that wicked men are happy and that undetected injustice is profitable while justice harms its possessor. But they postpone final rulings until justice itself is defined and shown intrinsically advantageous.
+
+- Shift from poetic “matter” to “style”: distinguish kinds of narration—simple narration (diegesis), imitation (mimesis), and mixed. Examples: tragedy/comedy are mostly mimetic; dithyramb is simple narration; epic is mixed. Illustrated with Homer’s Iliad (Chryses episode) by rewriting it as pure narration.
+
+- Policy on imitation for guardians: applying specialization (“one person, one craft”), guardians should not be general imitators. Because early imitation forms habits and character, they may imitate only fitting models (courageous, temperate, holy, free) and avoid imitating women in grief, slaves, bad/drunken/abusive/mad persons, craftsmen, or animal/natural sounds. A good narrator will use mostly simple narration with minimal, noble imitation; the opposite character imitates everything with little narration.

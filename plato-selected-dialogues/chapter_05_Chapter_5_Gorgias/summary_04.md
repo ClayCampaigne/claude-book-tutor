@@ -1,0 +1,9 @@
+- Socrates treats Callicles as the ideal “touchstone” critic (knowledge, goodwill, frankness) and presses him to define “natural justice”: is it rule of the stronger or the better? Callicles oscillates—stronger, then wiser/”politically able,” then the self‑mastered “temperate” is mocked—before affirming an ethics of expanding desires and maximal satisfaction.
+
+- Hedonism tested: Socrates’ images (leaky vs sound jars; soma/sema wordplay; the “sieve” of the uninitiated) aim to show a life of unending intake is wretched. Callicles embraces perpetual gratification, forcing Socrates to deploy counterexamples (itching, base desires), exposing the cost of equating pleasure with the good.
+
+- Key refutation: pleasure and pain can be simultaneous, but good and evil cannot; if pleasure=good, cowards and villains who often feel more pleasure would be “better”—absurd. Callicles retreats to “good pleasures = beneficial,” conceding pleasure ≠ good and returning to Socrates’ earlier standard: choose what benefits the soul.
+
+- Reinstated schema: true arts (medicine, legislation/justice) aim at order and virtue; flatteries (cookery, sophistic, rhetoric, much poetry/tragedy) chase pleasure. Socrates denies that even famed statesmen (Themistocles, Cimon, Miltiades, Pericles) truly improved citizens; the real statesman-physician imposes discipline and implants virtue.
+
+- Ethical upshot: virtue = order/harmony; temperance entails justice, courage, piety, and happiness. Doing wrong is worst; if wrong is done, punishment heals. Rhetoric’s only worthy use is self‑accusation. Mere life‑preserving “arts” (pilot, engineer) show survival ≠ virtue. To sway the demos one must resemble them—hence flattery’s danger. Socrates closes by proposing to “examine” Callicles’ statesmanly credentials: whom has he made better?

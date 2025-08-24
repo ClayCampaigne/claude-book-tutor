@@ -1,0 +1,5 @@
+- Socrates completes the ergon/arete framework with concrete examples: each thing has a distinctive function (what only it can do or does best), and an excellence that enables it to fulfill that function (e.g., eyes/seeing, ears/hearing, pruning-hook/pruning). Lacking its excellence, a thing fails at its function.
+- He applies this to the soul: its proper functions include ruling, supervising, deliberating—and life belongs among its ends. The soul, too, has an excellence.
+- On prior concessions, justice is the soul’s excellence and injustice its defect. Therefore, a just soul/man fulfills its function and “lives well”; an unjust one fails and “lives ill.”
+- Living well is happiness; living ill is misery. Hence the just are happy and the unjust miserable; therefore injustice can never be more profitable than justice.
+- Thrasymachus yields, but Socrates ends aporetically: despite arguing that justice is more profitable, they have not discovered what justice is. Without a definition, he cannot truly know whether justice is a virtue or whether the just are happy, lamenting the discussion’s disorderly shifts.

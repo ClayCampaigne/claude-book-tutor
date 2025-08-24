@@ -1,0 +1,6 @@
+- Locke sharpens the absolutism critique: under absolute monarchy subjects must submit to whatever the monarch does—whether guided by reason, error, or passion—whereas in the state of nature no one is bound to another’s unjust will, and anyone who judges amiss is answerable to the rest of mankind.
+- He answers the “where is the state of nature?” objection: rulers of independent states are in a state of nature relative to one another; thus the world always contains many in that condition.
+- Not every agreement ends the state of nature: only a mutual compact to unite into one community and form a single body politic does. Leagues and alliances leave parties still in the state of nature.
+- Promises made outside civil society are binding by natural law. Examples (e.g., Garcilaso’s desert-island traders; a Swiss and an American Indian) show truth-keeping obliges “as men,” not only as citizens.
+- Citing Hooker, Locke affirms the law of nature binds even absent settled society; human insufficiency in solitude naturally induces political union.
+- Strong thesis: all are naturally in the state of nature until, by their own consent, they become members of some political society—a point he pledges to prove further.

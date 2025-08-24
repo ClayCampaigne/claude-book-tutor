@@ -1,0 +1,11 @@
+- Frame and setting: After a 30-day delay for the Delian festival, Phaedo narrates Socrates’ final day to Echecrates at Phlius. Present are Simmias, Cebes, Crito, Apollodorus, Hermogenes, Euclid, Terpsion, and others; Plato, Aristippus, and Cleombrotus are absent. Xanthippe is sent away with the children.
+- Socrates, freed from chains, notes pleasure follows pain (foreshadowing the “opposites” theme). He has been versifying Aesop to obey a recurring dream to “practice music.” He tells Evenus to “follow” him in death—clarified as not by suicide, which is unlawful because we are possessions of the gods (or prisoners who must not self-release).
+- Core thesis: Death = separation of soul from body; the philosopher seeks this, purifying from senses and appetites. Virtues are purifications; mysteries hint “few are true initiates.”
+- Arguments for the soul’s preexistence/immortality:
+  - From opposites: life arises from death as waking from sleep; otherwise all would end in death.
+  - Recollection: we recognize Forms (e.g., Equality) beyond sensible equals, implying prior knowledge before birth.
+- Affinity argument: Soul (simple, commanding, invisible, akin to divine) is less liable to dissolution than the composite, changing body; pure souls join the gods, impure souls linger as ghosts and reincarnate according to character.
+- Objections:
+  - Simmias’ harmony: soul as harmony of the body cannot outlast the lyre.
+  - Cebes’ weaver/coat: soul may outlast many bodies yet still finally perish; true immortality requires outliving all bodies.
+- Socrates warns against misology and invites rigorous refutation; Simmias and Cebes restate their challenges.

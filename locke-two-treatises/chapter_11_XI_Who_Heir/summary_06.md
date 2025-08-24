@@ -1,0 +1,9 @@
+- Locke attacks Filmer’s Babel thesis: with Shem still alive, it is impossible that 72 new “fathers” suddenly acquired sovereign fatherly authority over the same people. Either (a) they were already separate rulers (so not “one people”), or (b) the people had been a commonwealth (no monarchy), or (c) these fathers had authority but unknowingly—an absurdity made worse by supposing the confusion of tongues instantly revealed precise jurisdictions. If God “preserved fatherly authority” in 72 nations, He simultaneously nullified any claim of Adam’s single heir, since at least 71 rulers could not be that heir.
+
+- On Nimrod: if “lords of families” means natural fathers, then seizing their rights makes monarchy beyond the family either usurpation/tyranny or else rests on the consent of fathers—functionally, consent of the people—undercutting Filmer’s patriarchal absolutism.
+
+- Filmer’s catalog of many petty kings (Edom, Canaan, etc.) refutes descent from Adam: fatherhood could yield at most authority over one’s own issue, and Adam’s universal fatherhood could descend to only one at a time. These kings therefore derive power from another source.
+
+- “Patriarchal jurisdiction” is equivocal. If it means absolute monarchy, it wasn’t “intermitted” in Egypt (there was a king). If it means something else, it’s irrelevant to Adamic right. Scripture shows no line of rulers claiming Adamic heirship.
+
+- Filmer’s claim that God set Moses and Joshua as princes “in the stead of supreme fathers” implies Israel returned from bondage to freedom, distinguishing sons, subjects, and slaves—contrary to Filmer’s notion of subjects as a patriarch’s property.

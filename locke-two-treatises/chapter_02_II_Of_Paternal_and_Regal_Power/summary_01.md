@@ -1,0 +1,6 @@
+- Locke targets Filmer’s foundation: “men are not naturally free,” derived from equating paternal authority with regal power. If this fails, government reverts to being formed by human contrivance and consent.
+- He faults Filmer for never defining “fatherly authority” despite making it the basis of absolute monarchy, noting Filmer’s own methodological critique of others for not defining terms.
+- Filmer offers a narrative, not an argument: fatherhood begins in Adam, runs through patriarchs, is suppressed in Egypt, then “reestablished” in Israelite kings. Locke sees this as assertion without proof.
+- Locke compiles Filmer’s scattered claims to expose their scope: fatherly/kingly power is absolute, arbitrary, unlimited, and unlimitable; above all laws; law is the will of the supreme father; kings’ grants bind only during their lives unless successors consent; fathers/kings hold power of life and death, war and peace; own children/subjects as slaves and property; may alienate, sell, even castrate them.
+- Scriptural “proof” is a half-quotation—“Honour thy father” (omitting “mother”)—and a supposed Bellarmine concession. Locke insists this is repetition, not reasoning, and warns such doctrine flatters rulers into tyranny.
+- He signals he has consulted Filmer’s other works to find any real argument.

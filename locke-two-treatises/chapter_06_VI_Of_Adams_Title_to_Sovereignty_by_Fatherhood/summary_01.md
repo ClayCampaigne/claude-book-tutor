@@ -1,0 +1,8 @@
+- Locke turns to Filmer’s last pillar: that Adam (and all patriarchs) held sovereign, royal authority over children by “fatherhood,” making every person born a subject of his begetter. Filmer cites Grotius (generatione jus acquiritur parentibus in liberos) but supplies no limit or proof, simply asserting this yields absolute, life-and-death power akin to masters over slaves.
+- Locke’s rebuttal:
+  - Begetting does not confer a right to destroy: giving something does not entail a right to take it away.
+  - Fathers do not “give life” in the relevant sense; only God is maker and giver of life. Humans neither design nor understand the structure, operations, or the infusion of the rational soul; thus only God’s “maker” title could ground such dominion.
+  - Even if “making” grounded authority, mothers would hold at least equal title, having furnished and nourished the embryo’s substance; so no exclusive paternal sovereignty follows.
+  - Filmer’s claim that God gave man sovereignty over woman as the “nobler, principal agent in generation” lacks any scriptural basis; Scripture attributes begetting to “father and mother.”
+- Appeals to practice (exposing/selling children, historical cannibalism, or even child sacrifices among Israelites) cannot found right: custom and fashion often corrupt; nature and divine law require preservation of offspring, and God condemns such acts as murder.
+- Conclusion: “Fatherhood by begetting” provides no warrant for absolute political dominion, and Filmer’s unsupported assertions cannot enslave all mankind by birth.

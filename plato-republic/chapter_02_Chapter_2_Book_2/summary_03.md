@@ -1,0 +1,8 @@
+- Adeimantus urges Socrates to prove what justice and injustice do to their possessors intrinsically, without reputations. Socrates praises their challenge, admits the task is hard, but agrees to proceed.
+- Method shift: to find justice more clearly, examine it first in the “larger letters” of a city, then in the individual. They will build a city in speech to see justice/injustice arise.
+- City’s origin: humans aren’t self-sufficient; necessity drives association and exchange. Division of labor follows natural differences and timing—each doing one task yields better, more plentiful products.
+- Foundational economy: farmers, builders, weavers, shoemakers require toolmakers (carpenters, smiths), herdsmen; imports/exports add merchants and sailors. Exchange necessitates a marketplace, money, retailers (stationary traders), and hirelings (laborers selling strength).
+- They expect justice/injustice to emerge in citizens’ dealings.
+- “Healthy” city: simple subsistence, moderation, limited families to avoid poverty/war; peaceful, self-controlled living.
+- Glaucon objects this is a “city of pigs,” prompting Socrates to construct a “luxurious” city: adds comforts (couches, tables, sauces, sweets), decorative arts (painting, embroidery), precious materials (gold, ivory), entertainment professions (hunters, actors, musicians, poets, dancers), expanded manufacture (including women’s apparel), and many service roles (tutors, nurses, tirewomen, barbers, confectioners, cooks, swineherds).
+- Consequence: needs outstrip the original limits; the city must enlarge its borders, setting conditions for further developments (and potential conflict), where justice/injustice will be more apparent.

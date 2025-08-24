@@ -1,0 +1,9 @@
+- Socrates reframes “defence” as averting the greatest evils, ranked: worst is doing injustice; worse still is doing it and escaping punishment. To avoid suffering injustice one needs power; to avoid doing it one needs power plus art. Callicles grants the earlier thesis that no one does wrong voluntarily and agrees that “power and art” are needed to avoid wrongdoing.
+
+- The “art” of avoiding suffering injustice, Socrates says, is to be a ruler/tyrant or their close companion. But tyrants only befriend those like themselves—neither their betters (whom they fear) nor inferiors (whom they despise). So the aspiring youth must mimic the tyrant’s likes/dislikes to be safe—thereby doing injustice and corrupting his soul, which is the greatest evil.
+
+- Against Callicles’ boast that imitators can kill and plunder non‑imitators, Socrates distinguishes life‑preserving “arts” (swimming, piloting, engineering) from soul‑improving ones: saving lives without curing vicious souls benefits no one; mere survival is not the noble or good. Hence rhetoric’s self‑vaunting is misplaced.
+
+- Political lesson: to win the demos, one must become like them; seeking power without conforming to the city is illusory and risks one’s dearest good (soul). Reaffirming two trainings—flattery for pleasure vs discipline for the good—Socrates says true politics must make citizens good; external goods are useless without a good mind.
+
+- Competence test for statesmanship: as with builders or physicians, show teachers and results. Socrates challenges Callicles to name anyone he has actually improved—setting the criterion for genuine political art.

@@ -1,0 +1,6 @@
+- Socrates likens himself to Apollo’s swans who sing most joyfully before death because they prophetically foresee good; he, as Apollo’s servant, welcomes questioning while time remains.
+- Simmias’ stance: Absolute certainty about such matters is likely impossible, yet one must test to the utmost; failing divine revelation, adopt the best, most irrefutable human “raft.” His objection (harmony theory): the soul is a harmony produced by the bodily elements (hot/cold, wet/dry), like harmony in a lyre. When the body’s “strings” are loosened or broken (disease/death), the harmony perishes first; thus the soul would not outlast bodily dissolution.
+- Socrates defers full reply until hearing Cebes.
+- Cebes’ objection (weaver/coat): Even if the soul is stronger and outlasts many bodies, it might still finally perish—like a weaver who outlives several coats but is ultimately outlived by the last. Hence confidence at death is rash unless the soul is shown imperishable, not merely long-lived.
+- The company’s confidence wavers; Echecrates concurs.
+- Socrates responds with composure and humor, then warns against “misology” (hatred of arguments), akin to misanthropy: naive overtrust and repeated disappointment breed sweeping distrust. Few arguments are extremely good or bad; most lie in between—so persist in careful dialectic rather than despair.

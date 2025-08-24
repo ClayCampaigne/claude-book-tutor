@@ -1,0 +1,25 @@
+<CONDENSED CHAPTER SUMMARY>
+Locke opens by striking at Filmer’s keystone: the denial that men are naturally free, a thesis Filmer derives by equating paternal authority with regal power. If that identification fails, Locke notes, political authority cannot rest on divine or patriarchal right and must instead be a human construction grounded in consent. He first faults Filmer for never defining the very thing he makes do all the work—“fatherly authority”—despite Filmer’s own habit of censuring others for loose terms. What Filmer offers, Locke says, is not argument but a storyline: fatherhood begins in Adam, flows through the patriarchs, is eclipsed under Egypt, and then reappears in the Israelite monarchy. To expose what this narrative smuggles in, Locke collates Filmer’s scattered assertions: that fatherly/kingly power is absolute, arbitrary, unlimited and unlimitable; stands above all law; makes the king’s will the only law; renders royal grants good only for a king’s lifetime unless his successor agrees; and vests fathers/kings with power of life and death, war and peace, and ownership of children/subjects as property, even to selling or castrating them. The “proof,” Locke observes, reduces to a half-citation—“Honour thy father,” pointedly omitting “and thy mother”—plus a supposed concession from Bellarmine. This is repetition, not reasoning, and it seduces rulers toward tyranny.
+
+Anticipating defenders who might claim Filmer argues better elsewhere, Locke reports he has searched Filmer’s other works and found no real proof. In the Observations on Hobbes he locates the fullest version, a chain of ifs: God created only Adam and formed Eve from him; all humans descend as “parts” of that pair; God gave Adam dominion over Eve and their children; and God granted Adam dominion over the earth and all creatures, so that none could claim or enjoy anything without Adam’s permission. These, Locke says—creation, conjugal dominion, paternal dominion, and universal property—are the entire basis of Filmer’s denial of natural freedom and of Adamic sovereignty. He announces he will examine each link in turn, confident that without them Filmer’s absolute monarchy collapses and the case for government by consent stands.
+</CONDENSED CHAPTER SUMMARY>
+
+<CHUNK 1 SUMMARY>
+- Locke targets Filmer’s foundation: “men are not naturally free,” derived from equating paternal authority with regal power. If this fails, government reverts to being formed by human contrivance and consent.
+- He faults Filmer for never defining “fatherly authority” despite making it the basis of absolute monarchy, noting Filmer’s own methodological critique of others for not defining terms.
+- Filmer offers a narrative, not an argument: fatherhood begins in Adam, runs through patriarchs, is suppressed in Egypt, then “reestablished” in Israelite kings. Locke sees this as assertion without proof.
+- Locke compiles Filmer’s scattered claims to expose their scope: fatherly/kingly power is absolute, arbitrary, unlimited, and unlimitable; above all laws; law is the will of the supreme father; kings’ grants bind only during their lives unless successors consent; fathers/kings hold power of life and death, war and peace; own children/subjects as slaves and property; may alienate, sell, even castrate them.
+- Scriptural “proof” is a half-quotation—“Honour thy father” (omitting “mother”)—and a supposed Bellarmine concession. Locke insists this is repetition, not reasoning, and warns such doctrine flatters rulers into tyranny.
+- He signals he has consulted Filmer’s other works to find any real argument.
+</CHUNK 1 SUMMARY>
+
+<CHUNK 2 SUMMARY>
+- Locke reiterates that Filmer offers no real scriptural or rational proof for Adam’s absolute sovereignty beyond repeating “Honour thy father” and invoking Bellarmine; he challenges admirers to cite any actual argument.
+- He suggests the applause for Filmer stems from interest in absolute power, not reason, and warns that rational readers will not be persuaded by bare assertion.
+- To be thorough, Locke surveys Filmer’s other works. In the Observations on Hobbes, he finds the fullest statement of Filmer’s case, condensed into a chain of “ifs”:
+  - God created only Adam and made Eve from him.
+  - All mankind are propagated from them as “parts” of the first pair.
+  - God gave Adam dominion over Eve and over their children.
+  - God also gave Adam dominion over the whole earth and all creatures, so that while Adam lived no one could claim or enjoy anything except by his grant or permission.
+- Locke identifies these as the entire basis for Filmer’s denial of natural freedom and for Adamic sovereignty: creation, conjugal dominion, and paternal dominion (with universal property/permission). He announces he will examine each claim in turn.
+</CHUNK 2 SUMMARY>

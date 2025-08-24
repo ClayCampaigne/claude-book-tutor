@@ -1,0 +1,8 @@
+- Mill’s subject is civil/social liberty: defining the legitimate limits of society’s power over the individual.
+- Historically, “liberty” meant protection from rulers’ tyranny. Two safeguards emerged: (1) recognized rights/immunities justifying resistance if violated; (2) constitutional checks requiring consent of the community or its representatives.
+- With the rise of elective, accountable government, many assumed rulers identified with the people, so limiting power seemed less necessary.
+- Experience with democratic republics revealed “self-government” is really rule by the majority or the most active part over others; thus, tyranny of the majority is a real danger.
+- Tyranny can be social, not just political: prevailing opinion and feeling can enforce conformity through non-legal sanctions, deeply invading life and suppressing individuality.
+- Therefore, protection is needed not only against magistrates but also against collective opinion; the central problem is where to draw the line between individual independence and social control.
+- Some rules must exist (law and opinion), but deciding which remains unresolved and varies across times and places. Custom is mistaken for nature; people rely on unreasoned preferences.
+- Moral rules often reflect class interests, prejudices, self/anti-social feelings, and servility to rulers or gods more than reasoned social interest; social likings largely set enforced norms, a condition seldom challenged in principle even by advanced thinkers.

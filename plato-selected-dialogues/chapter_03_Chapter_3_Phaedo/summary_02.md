@@ -1,0 +1,14 @@
+- Socrates urges rigorous testing to avoid “misology,” then dismantles Simmias’ “harmony” theory:
+  - It conflicts with admitted preexistence of Forms/soul; harmony is an effect, but soul is a cause and leader.
+  - Harmony admits degrees; souls do not. Souls can oppose bodily impulses (e.g., Odysseus rebuking his heart), which a mere harmony could not.
+- Turning to Cebes’ “weaver/coat” worry, Socrates recounts his turn from natural science to a “safe” causal method:
+  - Disappointed by Anaxagoras’ material explanations, he distinguishes true causes from mere conditions (bones/muscles vs choosing justice).
+  - Adopts the method of hypothesis grounded in Forms: Beauty makes things beautiful, Greatness great, etc.; test consistency, ascend to higher hypotheses.
+- New argument: mutual exclusion extended from pure opposites to their inseparable participants:
+  - As fire (heat) cannot admit cold, and 3 (odd) cannot admit even, so the soul, whose inseparable attribute is life, cannot admit death.
+  - If the immortal is imperishable, the soul does not perish at death but “withdraws.”
+- Ethical and eschatological close:
+  - Souls are judged; incurables remain in Tartarus; curables undergo purgation and seek victims’ forgiveness; pure souls dwell above; a select few in higher “mansions.”
+  - Cosmology of the true earth and rivers (Oceanus, Acheron, Pyriphlegethon, Cocytus/Styx) frames the cycle.
+  - Socrates treats the myth as likely in kind, not literally exact; exhorts living for the soul’s good.
+  - Final acts: dismisses concern over burial (“you bury my body, not me”); drinks hemlock; asks for a cock to Asclepius—signaling fulfilled piety or “cure” in death.

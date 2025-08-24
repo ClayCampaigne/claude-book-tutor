@@ -1,0 +1,9 @@
+- Test against common opinions (endoxa): Goods are external, of body, and of soul; goods of soul are primary. Since happiness is activity of soul, it aligns with this and with the saying “to live and do well.”
+- Reconciling rival views: People cite virtue, prudence/wisdom, pleasure, and external prosperity. Each captures part of the truth.
+  - Crucial distinction: happiness is not mere possession of virtue but its exercise; like Olympic victors, excellence must be manifested in action.
+  - Virtuous activity is naturally pleasant; the good person delights in noble deeds. Thus the best, noblest, and pleasantest coincide in happiness, without needing added pleasure.
+- External goods are still needed as instruments/conditions (friends, wealth, influence) and some circumstances (birth, children, beauty) affect the “bloom” of happiness.
+- Source of happiness: even if divinely given, better and more fitting that it comes through learning/habituation/virtue; then it’s widely accessible. Politics rightly aims to form citizens of good character.
+- Animals and children aren’t happy; a full life is required for sustained virtuous activity.
+- Fortune and Solon’s dictum: Don’t tie happiness to fluctuating luck or to the state of the dead. Excellent activity is the most stable human thing; the happy person maintains virtuous conduct, bears misfortunes nobly, and isn’t easily deprived of happiness—though many great calamities can diminish it.
+- Refined definition: happiness is sustained activity in accordance with perfect virtue, with sufficient external goods, over a complete life, continuing so and ending similarly.

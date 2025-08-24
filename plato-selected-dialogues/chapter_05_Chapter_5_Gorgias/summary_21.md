@@ -1,0 +1,9 @@
+- Callicles retreats from “pleasure = good,” conceding that some pleasures are good and others bad; the good are the beneficial, the bad the harmful. There are likewise good and bad pains.
+- Shared principle reaffirmed: all actions aim at the good; therefore pleasure is to be sought for the sake of the good, not vice versa. Discriminating good/bad pleasures requires an art/knowledge.
+- Socrates reinstates his schema: 
+  - True arts know natures/causes and aim at the good (e.g., medicine for bodies).
+  - Knacks/experiences (flatteries) aim only at pleasure (e.g., cookery).
+  - Parallel for the soul: some practices genuinely benefit it; others merely gratify, indifferent to moral betterment—these are “flattery.”
+- Survey of arts shows many are pleasure‑aiming: flute/lyre/choral/dithyrambic performance and especially tragedy; stripping meter reveals poetry as a kind of rhetoric addressing mixed crowds—hence largely flattery.
+- Political rhetoric divides similarly: a base kind that panders, and a noble kind that improves souls by saying what is best whether welcome or not. Callicles cannot name a living exemplar, and, when pressed, no past Athenian statesman either.
+- Positive criterion for true statesmanship/rhetoric: like other arts, it uses standards to impose order/harmony. Order in body = health/strength; in soul = lawfulness producing temperance and justice. The true rhetorician aims to implant justice/temperance and remove their opposites, not merely to dispense pleasing “doses” that harm, as with feeding delicacies to the sick.

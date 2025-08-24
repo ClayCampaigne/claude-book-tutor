@@ -1,0 +1,7 @@
+- Locke shows birthright did not entail dominion. In the Jacob–Esau story, Isaac blessed Jacob believing him to be Esau; Esau himself distinguishes “birthright” from “blessing,” so lordship cannot be the birthright’s content. Patriarchal practice confirms this: Sarah’s “shall not be heir” (Gen 21:10) concerns estate shares, not rule; Abraham gave Isaac “all,” but only gifts to sons of concubines and sent them away—heirship = larger portion, not sovereignty. Chronicles 5:1 and Gen 48:22 make it explicit: Joseph held the birthright (double portion), while Judah held dominion; therefore dominion is no part of the birthright.
+
+- Gen 27:29 is a prophecy about posterities (Israel over Edom), not Jacob’s personal rule over Esau; historically Esau was never subject to Jacob—indeed Jacob bows to him—so it cannot prove fraternal subjection. Likewise Gen 4 concerns sin, not Abel; it yields no rule-of-heir.
+
+- Filmer claims Adam’s power descends to “the heir” as lord over all brethren, but never identifies who the heir is. Without a determinate person, “paternal power” cannot ground obligation, forcing Filmer to default to present possession—making obedience equally due to usurpers.
+
+- Locke presses unresolved succession cases (no son; claims through daughters, brothers, infants, concubines vs wives, legitimacy), noting that neither nature nor Scripture supplies determinate rules; municipal laws are irrelevant to a supposed divine/natural title.

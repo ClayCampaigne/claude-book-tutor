@@ -1,0 +1,5 @@
+- Usurpation is “domestic conquest”: seizing offices or powers that rightfully belong to another. Unlike conquest, an usurper never has right, because he holds what someone else is entitled to.
+- As usurpation, it changes only the persons in office, not the government’s form or rules; if the usurper also exceeds the lawful scope of those offices, it adds tyranny to usurpation.
+- In every lawful commonwealth, designating who shall bear rule is as essential as defining the form of government, and this designation originally derives from the people. Lacking rules to determine the personnel of rule is akin to anarchy.
+- Therefore all constitutions have lawful procedures for appointing and conveying authority. Anyone who enters into the exercise of any part of power by means other than those prescribed by law has no right to obedience, even if the constitutional form remains.
+- Neither the usurper nor his successors can gain a rightful title until the people are free to consent and do in fact expressly consent to confirm the power previously usurped.

@@ -1,0 +1,7 @@
+- Political societies begin only by consent: free, equal, independent individuals agree to unite into one community for secure, peaceful enjoyment of their property and mutual defense.
+- Incorporation creates one body politic; by reason and the law of nature, the majority’s will is the act of the whole. Unanimity is impracticable; without majority rule the society cannot act and would dissolve, making the original compact meaningless.
+- The compact needed is minimal: merely agreeing to unite under one government. By that, each member obliges himself to abide by majority determinations. Any number of freemen “capable of a majority” can found a lawful government.
+- Objection 1 (no historical instances): Sparse records of the state of nature are expected—government precedes letters; peoples often forget their origins. Yet history shows beginnings by voluntary union: Rome and Venice; New World peoples who lived without fixed kings, choosing leaders as needed (Josephus Acosta); the Spartan colonists with Palantus.
+- Paternal subjection does not negate later political liberty to unite (argued earlier).
+- While many early governments were in one hand, this reflects consent and convenience, not paternal right: families often trusted fathers’ natural executive power; when unfit or when families combined, they chose the ablest. Petty monarchies were commonly elective.
+- Why monarchy first: habituation from childhood to one ruler; its simplicity; and early ignorance of the need to restrain prerogative—none of which implies inherent paternal dominion.

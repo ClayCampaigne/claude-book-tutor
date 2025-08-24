@@ -1,0 +1,7 @@
+- Targeted claim: Filmer (citing Selden) argues Gen 1:28 made Adam “general lord” and, by Filmer’s extension, “monarch of the whole world,” with political title deriving from fatherhood. Locke notes Filmer equivocates between property over creatures and sovereignty over people.
+
+- Locke’s twofold rebuttal:
+  1) No dominion over men is granted. The phrase “every living thing that moveth” uses Hebrew terms (chayah; remes) that, in the creation account (Gen 1:24–25) and the Septuagint, denote irrational animals (wild beasts and reptiles), not humans. The same terms reappear when God renews the grant to Noah and his sons (Gen 9:2–3), clearly addressing all mankind, not one man’s rule over others; v.3 even grants “every moving thing” for food, which would absurdly license eating subjects if “moving thing” included humans. Psalm 8 likewise interprets the grant as mankind’s dominion over animals, not men over men.
+  2) The grant is not exclusive to Adam. It is plural—“God blessed them… said unto them, have dominion”—thus including Eve and, more fundamentally, the species envisaged in Gen 1:26 (“let them have dominion”). Dominion flows from the image of God (intellectual nature) shared by all humans.
+
+- Conclusion: Gen 1:28 establishes common human dominion over animals, not Adam’s political monarchy or private proprietorship.

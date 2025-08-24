@@ -1,0 +1,8 @@
+- Insensibility to bodily pleasures is virtually nonhuman: even animals discriminate pleasures; a person to whom nothing is pleasant does not exist.
+- The temperate person hits the mean: he disdains the intense, base pleasures favored by the profligate; takes little or no pleasure in the wrong things; is not pained by their absence; and desires moderately what is pleasant when it also promotes health and good condition. He accepts other pleasures only if they are neither harmful, ignoble, nor beyond his means, being guided by right reason.
+- Profligacy is more voluntary and blameworthy than cowardice:
+  - It is driven by pleasure (which we choose), whereas cowardice is driven by pain (which disturbs and is avoided).
+  - Training against profligacy is easier and safer, since such occasions are frequent; occasions of fear are rarer and risky.
+  - Cowardice as a habit is more voluntary than its particular acts, which momentary fear makes quasi-compulsory; conversely, profligate acts are voluntary though no one wishes the profligate character.
+- Profligacy resembles childishness: appetite is expansive and, if unchecked, grows through gratification, even expelling reason. Therefore gratifications should be few and moderate; appetite must be “chastened,” subordinated to reason like a child to a tutor.
+- Temperance finalized: appetites harmonize with reason; the temperate person desires what, as, and when he ought, for the sake of the noble.

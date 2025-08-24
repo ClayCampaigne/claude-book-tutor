@@ -1,0 +1,15 @@
+- Virtue is not an emotion or a mere faculty: we are praised/blamed and called good/bad for virtues/vices, not for feeling emotions or simply having capacities; emotions can occur without choice, whereas virtue requires choice; emotions are “movements,” virtues are stable dispositions; faculties are given by nature, but virtue is not.
+- Therefore, virtue is a trained, stable habit that makes its subject good and enables good functioning.
+- Doctrine of the mean: in passions and actions there are excesses and deficiencies; virtue hits the mean “relative to us,” not an arithmetic mean, and is determined by right reason—as the prudent person would determine. Arts aim at such means; virtue, being more exact, does so too. It is a mean between two vices (excess/defect), yet in relation to what is best it is an “extreme” of perfection. Evil has many ways; hitting the mean is hard.
+- No mean for acts/passions bad in themselves (e.g., malevolence, shamelessness, envy; adultery, theft, murder).
+- Catalogue of means and extremes:
+  - Fear/confidence: courage; rashness (excess in confidence), cowardice (excess in fear); nameless excess in fearlessness.
+  - Bodily pleasures/pains: temperance; profligacy (excess); insensibility (defect, rare).
+  - Money: liberality; prodigality (spends too much, takes too little); illiberality (takes too much, spends too little). For large expenditures: magnificence; vulgarity (excess), meanness (defect).
+  - Honor: high-mindedness for great honors; vanity/excess, smallness of soul/defect. For lesser honors: mean lacks a name; extremes are ambitious vs unambitious; common usage is equivocal.
+  - Anger: gentleness; wrathfulness (excess), wrathlessness (defect).
+  - Social intercourse:
+    - Truthfulness: truthfulness; boasting (excess), irony/self-deprecation (defect).
+    - Amusement: wittiness; buffoonery (excess), boorishness (defect).
+    - General pleasantness: friendliness; obsequiousness/flattery (excess), quarrelsomeness/peevishness (defect).
+  - Additional affective means: modesty (praised though not a virtue) between shamefacedness and shamelessness; righteous indignation between envy and malevolence.

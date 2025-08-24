@@ -1,0 +1,11 @@
+- Extending beauty to all things: Not only organisms but also unorganized nature and even manufactured items can be aesthetically contemplated because they manifest the lowest-grade Ideas (gravity, rigidity, fluidity, light). Landscape-gardening and architecture can aid these Ideas to appear purely; poor designs hinder but cannot erase them.
+
+- Manufactured articles express the Idea of their material, not an “Idea of chair/table.” In scholastic terms: they show the forma substantialis (grade of will’s objectification in the material), not the forma accidentalis (the human-conceived artifact form). Schopenhauer aligns with Platonists who deny Ideas of artifacts; he also criticizes Plato’s view that art imitates particulars (not Ideas), tracing Plato’s rejection of art to this error.
+
+- Aesthetic pleasure has two foci: will-less peace predominates with low-grade Ideas (inorganic, plants, architecture); comprehension of rich, higher Ideas predominates with animals/humans (violence, satisfaction, aberration, and in Christian art, will’s change and self-surrender; drama/historical painting portray will enlightened by knowledge).
+
+- Matter as such cannot express an Idea (it is causality, hence PSR-bound); only its perceivable qualities (gravity, cohesion, light-sensitivity) are weak objectifications accessible to intuition.
+
+- Architecture (as pure art, abstracted from utility) makes distinct the conflict of gravity and rigidity—the “bass notes” of nature—by forcing these forces into indirect satisfactions (columns bear roofs; arches push through pillars), rendering their struggle visible. Beauty lies in the necessary adaptation of each part to the whole’s stability; forms are determined by structural ends (round columns simplest; twisted columns tasteless). Material truth is essential: discovering lighter/wooden/mixed unseen materials diminishes or ruins the effect, showing architecture affects us dynamically (forces), not merely mathematically (symmetry). Symmetry/regularity aid comprehension but are secondary; ruins can still be beautiful.
+
+- Architecture has a special relation to light: it is enhanced by sun/moonlight, and good siting considers light/climate; beyond illumination, architecture can reveal light’s nature.

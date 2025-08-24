@@ -1,0 +1,11 @@
+- Core thesis: “The world is my idea.” Everything that exists for knowledge exists only as object relative to a subject. This antithesis is more fundamental than space, time, or causality, which presuppose it.
+- Scope of Book I: Consider the world solely as idea (representation), abstracting entirely from will. Later (Book II) the complementary truth appears: “the world is my will.” A putative “object in itself” distinct from idea and will is a philosophical illusion.
+- Subject–object structure:
+  - Subject: that which knows all things, never known; outside space and time; undivided and presupposed by all experience.
+  - Object: exists only in relation to a subject; its forms are space and time, which ground multiplicity.
+  - Any single percipient with its object constitutes the whole world as idea; remove the subject and the world as idea vanishes.
+- Principle of sufficient reason (PSR): the general form of all objects; all a priori knowledge is the content of PSR and its consequences. Objects exist only in necessary relations (as determining/determined), hence relatively.
+- Perception vs. abstract ideas: focus here on perceptual ideas (experience); abstract concepts (reason) will be treated later.
+- Space and time are a priori intuitions (Kant), grounding mathematics. PSR appears in them as the “ground of being”: succession (time) and position/reciprocal determination (space).
+- Time’s essence: evanescent succession; past/future empty, present a boundary. Analogous relativity extends to space and all causally/motivationally generated content (echoed by Heraclitus, Plato, Spinoza, Kant’s phenomenon/thing-in-itself, and Indian Mâyâ).
+- Matter: nothing beyond causation; its being is its action. Only as active does it fill space and time; its action on the immediate object (itself matter) yields perception.
