@@ -1,5 +1,13 @@
 # AI Book Discussion Guide
 
+## 🧪 EXPERIMENTAL PROJECT
+
+**Status:** This is an experimental approach to AI-powered book discussion using Claude Code's direct text search capabilities. 
+
+**Alternative:** For a more polished experience with modern books, consider [Google's NotebookLM](https://notebooklm.google.com/), which provides superior RAG-based document analysis and discussion capabilities.
+
+**Value Proposition:** This project explores using a coding agent's file system tools (grep, read, search) for literary analysis - an interesting technical approach but currently outperformed by purpose-built tools.
+
 ## Welcome to Interactive Literary Exploration
 
 This repository contains processed texts of public domain works, prepared for discussion with Claude using Claude Code. These materials enable deep, contextual conversations about classic philosophical and political texts.
