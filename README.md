@@ -2,7 +2,7 @@
 
 ## 🧪 EXPERIMENTAL PROJECT
 
-**Status:** This is an experimental approach to AI-powered book discussion using Claude Code's direct text search capabilities. 
+**Status:** This is an experimental approach to AI-powered book discussion using Claude Code's direct ("agentic") text search capabilities. 
 
 **Alternative:** For a more polished experience with modern books, consider [Google's NotebookLM](https://notebooklm.google.com/), which provides superior RAG-based document analysis and discussion capabilities.
 
